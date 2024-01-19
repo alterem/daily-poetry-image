@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/19 16:21:39
+  最近一次生成时间: 2024/1/19 18:17:57
 </p>
 <p align="center">
-愿为西南风，长逝入君怀。
+满目山河增感慨，一时风景寄遨游。
 </p>
 <p align="center">
-<<明月上高楼>> • 曹植
+<<摘星楼九日登临>> • 姜塘
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG.CW2j0xIWsj4PCP0ROsYb" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG..UFpvSM7pz.ICCZxtQua" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG.Knr1cGi.dmS8vn1toIAh" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG.WplrXYypiSrcKlK1xah9" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.z80XfHv1bq0nwFUlbTpx" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.9IuDW1GfoUP0.EyuemFe" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG.Eax14IR1NJGIF8z_g5.O" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.bWkTUEUTt.dSOpQzm4CT" height="400" width="400" />
 </p>
 
 ## 项目介绍
