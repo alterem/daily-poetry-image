@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/20 09:09:53
+  最近一次生成时间: 2024/1/20 10:28:37
 </p>
 <p align="center">
-蒂有余香金淡泊，枝无全叶翠离披。
+悲霜雪之俱下兮，听潮水之相击。
 </p>
 <p align="center">
-<<残菊>> • 曹雪芹
+<<九章>> • 屈原
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG.eXCZBM26wGYrkI6IbJJT" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG.gbxm8_0BBJcWldIcRNY6" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG.7OT9CQUsi6sUH059G01." height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG.C..UdxRajhOuLAXjCgFz" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.urD0M0FIlArwX_oidXtt" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.tTjOrqExrESwumXMmvud" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.utt1rvBOtFU4pNyHbvt5" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.DcJUNwkfBW7xcwqNQB2d" height="400" width="400" />
 </p>
 
 ## 项目介绍
