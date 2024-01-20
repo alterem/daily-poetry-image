@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/20 10:28:37
+  最近一次生成时间: 2024/1/20 14:19:52
 </p>
 <p align="center">
-悲霜雪之俱下兮，听潮水之相击。
+小溪清水平如镜，一叶飞来浪细生。
 </p>
 <p align="center">
-<<九章>> • 屈原
+<<秋行>> • 徐玑
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG.urD0M0FIlArwX_oidXtt" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG.tTjOrqExrESwumXMmvud" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG.utt1rvBOtFU4pNyHbvt5" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG.DcJUNwkfBW7xcwqNQB2d" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.10sO8hKlwrXZ8YsCcIOV" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.OuB2LkmARrJz82oN2OdW" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.I99YUNSaYWezpJxsKIEn" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.nrwAxQs3K2WROqcKlxpe" height="400" width="400" />
 </p>
 
 ## 项目介绍
