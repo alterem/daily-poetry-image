@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/21 20:32:33
+  最近一次生成时间: 2024/1/22 04:18:09
 </p>
 <p align="center">
-桑野就耕父，荷锄随牧童。
+虚空落泉千仞直，雷奔入江不暂息。
 </p>
 <p align="center">
-<<田家元日>> • 孟浩然
+<<庐山瀑布>> • 徐凝
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG.cQAhDNG0wEj7nrrXrlCk" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG.Rs0v86IxbSdPusl0.wUT" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG.wo74NYm6Le_TS8OHphia" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG.m2XYSOC6KgbjKloXQ81F" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.ZOHdS71mlLtCWM_q9sgU" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.SGE7IA6K6kKI5CJRICNT" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.Ty5SBGlwSlyPdnT2MKtu" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.mPVUyTWewdK1Hz.ZU8Hz" height="400" width="400" />
 </p>
 
 ## 项目介绍
