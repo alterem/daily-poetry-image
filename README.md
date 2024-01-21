@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/21 06:14:56
+  最近一次生成时间: 2024/1/21 09:15:50
 </p>
 <p align="center">
-最爱湖东行不足，绿杨阴里白沙堤。
+海内存知己，天涯若比邻。
 </p>
 <p align="center">
-<<钱塘湖春行>> • 白居易
+<<送杜少府之任蜀州 / 送杜少府之任蜀川>> • 王勃
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG.RESfr6kaVP.v6WgljSEn" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG.IJO9LzXsoFRCWK31pdih" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG.uIPQdCDCEkUP0ad86CEn" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG.826c3W3qOjDugDGtWqS9" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG.mTj1x.X.4gJZ9pDbvl0c" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG._NNWjAnx8_rftgZ76dG7" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG.k_4DV3.0.QpWn.TcDciu" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.DEsdL2GuDaqXjNXbpREw" height="400" width="400" />
 </p>
 
 ## 项目介绍
