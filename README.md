@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/22 06:15:25
+  最近一次生成时间: 2024/1/22 09:13:55
 </p>
 <p align="center">
-春山暖日和风，阑干楼阁帘栊，杨柳秋千院中。
+一骑红尘妃子笑，无人知是荔枝来。
 </p>
 <p align="center">
-<<天净沙·春>> • 白朴
+<<过华清宫绝句三首>> • 杜牧
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG.HtDkO5Ei1c6Oa.paW76f" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG.q7i0T7ocy3Aco1wNEAdQ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG.6SBGhKgg66Yn_UYjaxig" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG.9WgFm7LXrwDxMHw4TCRI" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG.vDbb6MEl0kx4ibdhtmii" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.Zy2h958S9U3bd3aiWr25" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.weNl2IbaTLUyNZatLUWY" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.sbfWw0tzaqo.RbcgfP2H" height="400" width="400" />
 </p>
 
 ## 项目介绍
