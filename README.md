@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/22 16:22:36
+  最近一次生成时间: 2024/1/22 18:18:43
 </p>
 <p align="center">
-强携酒、小桥宅，怕梨花落尽成秋色。
+淡黄杨柳暗栖鸦。玉人和月摘梅花。
 </p>
 <p align="center">
-<<淡黄柳·空城晓角>> • 姜夔
+<<减字浣溪沙·楼角初销一缕霞>> • 贺铸
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG.6xoQ3yOsKTcu0dbRudYG" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG.hMxSVkEzxOPC_vWwewY1" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG.gmXksR3wopbu8mjceYka" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG.89YYzAmPuS0M0cV2el_5" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG.cdkoljRIYiF3ZBI7AI6Z" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.5DyjE.0iigwMp_bv0xQR" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG.9gZwLzqliniAHYw4Eejl" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.WmTPs9SNFaBknf1ezRg3" height="400" width="400" />
 </p>
 
 ## 项目介绍
