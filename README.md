@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/22 20:35:17
+  最近一次生成时间: 2024/1/23 04:19:23
 </p>
 <p align="center">
-万里不惜死，一朝得成功。
+羡青山有思，白鹤忘机。
 </p>
 <p align="center">
-<<塞下曲>> • 高适
+<<八声甘州·摘青梅荐酒>> • 汤恢
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG.9L3jJRP32W1sCtB1lvP2" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG.7J8qXwqHiV_9PZ.JjzTg" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG.ymFXpccbNAqlKZiZicJz" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG.u0Q6bE87AN3pc2tTGBZO" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.AG49Yg_LvIpdFdj4MRUU" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.gURxYqg.iTIYiayKzKkQ" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.o5_tWP0m4CvDTvM7dtG5" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.OOa67hUh0E.kuNI6jZjF" height="400" width="400" />
 </p>
 
 ## 项目介绍
