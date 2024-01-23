@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/24 04:19:40
+  最近一次生成时间: 2024/1/24 06:15:58
 </p>
 <p align="center">
-寒夜客来茶当酒，竹炉汤沸火初红。
+金鞍玉勒寻芳客，未信我庐别有春。
 </p>
 <p align="center">
-<<寒夜>> • 杜耒
+<<观书>> • 于谦
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG.38B.7Km_Xa3mgh0IY3do" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG.tbNDakxBgeGM.eVwj_FO" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG.IQSHApDjD1cJcN1z_4KF" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG._lJxejTgFa7reth7P1ID" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.oz_QoJPkigaUgkqDqJmF" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.6cgdOA_TrvaetM2eOGn7" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.Mm8R3napNzD16F6dV8pL" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.9ElOY5HS00lUaoGq1xIX" height="400" width="400" />
 </p>
 
 ## 项目介绍
