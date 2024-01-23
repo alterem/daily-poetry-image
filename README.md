@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/23 14:21:32
+  最近一次生成时间: 2024/1/23 16:21:37
 </p>
 <p align="center">
-时人不识凌云木，直待凌云始道高。
+别裁伪体亲风雅，转益多师是汝师。
 </p>
 <p align="center">
-<<小松>> • 杜荀鹤
+<<戏为六绝句>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG.6deaUFnm9.BhI.XvlG48" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG.2lRjHlU8sbg2fNWVkpPq" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG.ZWAn35TpJrFIiKWc_XUb" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG.9TnB523y2gXco6dAe84y" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.P_C5ChGEfWcg1bKr4wHl" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.717GoadIryzMgkUqk2cM" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG.MPMZGZ0sbmvBeMQSe212" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.Rqe247Gr7grfafP4BRGj" height="400" width="400" />
 </p>
 
 ## 项目介绍
