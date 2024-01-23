@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/23 12:20:39
+  最近一次生成时间: 2024/1/23 14:21:32
 </p>
 <p align="center">
-泰山不要欺毫末，颜子无心羡老彭。
+时人不识凌云木，直待凌云始道高。
 </p>
 <p align="center">
-<<放言五首·其五>> • 白居易
+<<小松>> • 杜荀鹤
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG.t2yUARE0Wbj38_GUQ6in" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG.ZSmfgkPLJnopgzif0IFY" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG.d.jKTwDfQKPFasNzRrdm" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG.ajprIGx0_04jhZBKw.7j" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.6deaUFnm9.BhI.XvlG48" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.2lRjHlU8sbg2fNWVkpPq" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.ZWAn35TpJrFIiKWc_XUb" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.9TnB523y2gXco6dAe84y" height="400" width="400" />
 </p>
 
 ## 项目介绍
