@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/24 06:15:58
+  最近一次生成时间: 2024/1/24 09:12:11
 </p>
 <p align="center">
-金鞍玉勒寻芳客，未信我庐别有春。
+蚕娘洗茧前溪渌，牧童吹笛和衣浴。
 </p>
 <p align="center">
-<<观书>> • 于谦
+<<春晚书山家屋壁二首>> • 贯休
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG.oz_QoJPkigaUgkqDqJmF" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG.6cgdOA_TrvaetM2eOGn7" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG.Mm8R3napNzD16F6dV8pL" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG.9ElOY5HS00lUaoGq1xIX" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.4FS9l0Tyw.E.w9hvx2WI" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.tz.WjwQQ0kwoixcXF_cU" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.IZqyUvhdQg_ZkmVn3KFl" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.rraRXjNMrk4GBCS8gdpK" height="400" width="400" />
 </p>
 
 ## 项目介绍
