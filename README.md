@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/24 20:32:34
+  最近一次生成时间: 2024/1/25 04:18:53
 </p>
 <p align="center">
-一生傲岸苦不谐，恩疏媒劳志多乖。
+欲把西湖比西子，淡妆浓抹总相宜。
 </p>
 <p align="center">
-<<答王十二寒夜独酌有怀>> • 李白
+<<饮湖上初晴后雨二首·其二>> • 苏轼
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG.nL_Vxmr4Fxova71Wc2mC" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG.Mv0X4LIdyfENdlwGC8Cg" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG.LlTdw3TnD02gONeayzJx" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG.qDCck.3VwPoNm0AhEN3s" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.FZATBCU694rIZdi36N5W" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG.V9OKXkwUvwfcashu7Z_f" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.OohAGd.CrvqAFRBggO7r" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.J3l3H4AfD42Mc2pMv2zu" height="400" width="400" />
 </p>
 
 ## 项目介绍
