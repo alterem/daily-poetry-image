@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/24 18:17:48
+  最近一次生成时间: 2024/1/24 20:32:34
 </p>
 <p align="center">
-父耕原上田，子劚山下荒。
+一生傲岸苦不谐，恩疏媒劳志多乖。
 </p>
 <p align="center">
-<<田家>> • 聂夷中
+<<答王十二寒夜独酌有怀>> • 李白
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG.POVx2lFROq2BlOTzhrO7" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG.Fbsm8Cv1UJnmGgAG9EvO" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG.X2raSmrYiopk9tmYBUXk" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG.O2btySPQK.gT2yoEK85V" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.nL_Vxmr4Fxova71Wc2mC" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG.Mv0X4LIdyfENdlwGC8Cg" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG.LlTdw3TnD02gONeayzJx" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.qDCck.3VwPoNm0AhEN3s" height="400" width="400" />
 </p>
 
 ## 项目介绍
