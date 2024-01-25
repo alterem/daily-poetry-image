@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/25 20:35:08
+  最近一次生成时间: 2024/1/26 04:16:44
 </p>
 <p align="center">
-宣父犹能畏后生，丈夫未可轻年少。
+长风破浪会有时，直挂云帆济沧海。
 </p>
 <p align="center">
-<<上李邕>> • 李白
+<<行路难·其一>> • 李白
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG.YmBRO6.6RoqAM4wQp8v9" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG.GCjnLVBr7881dPf9FyLh" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG.MZPri2tWAe33N81Ya.X8" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG.8hM.n4e6I4uaHrMLHrpo" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.mca0BNt1FnVeNI3qli0S" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.4GYiDnOCw1xs4WdR2KAX" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG.dAeJuXxXpmh5HdfpCMO7" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.xrYnQIju1eNgLjrkbjpp" height="400" width="400" />
 </p>
 
 ## 项目介绍
