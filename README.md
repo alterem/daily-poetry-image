@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/26 04:16:44
+  最近一次生成时间: 2024/1/26 06:13:05
 </p>
 <p align="center">
-长风破浪会有时，直挂云帆济沧海。
+见梨花初带夜月，海棠半含朝雨。
 </p>
 <p align="center">
-<<行路难·其一>> • 李白
+<<三台·清明应制>> • 万俟咏
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG.mca0BNt1FnVeNI3qli0S" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG.4GYiDnOCw1xs4WdR2KAX" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG.dAeJuXxXpmh5HdfpCMO7" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG.xrYnQIju1eNgLjrkbjpp" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.VViGAZdTNz9cG3jkxb4a" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.V.gdCjiraqxPlpNhGjh0" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.16.aAhyacegT8fBS2qN2" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.OKM1sjP20aTuLuhUuv6b" height="400" width="400" />
 </p>
 
 ## 项目介绍
