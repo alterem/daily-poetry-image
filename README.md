@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/25 12:20:19
+  最近一次生成时间: 2024/1/25 14:21:30
 </p>
 <p align="center">
-目断秋霄落雁，醉来时响空弦。
+路漫漫其修远兮，吾将上下而求索。
 </p>
 <p align="center">
-<<木兰花慢·滁州送范倅>> • 辛弃疾
+<<离骚>> • 屈原
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG.Kz_VVyt7mu0E2XQLrkjE" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG.Y143v4QBRqK46xr9nBtt" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG.FDT72HSAwQZ7xuosBGUI" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG.yMcinSwrwcfcHU_Pjq4y" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.UypEL16wEp4ZrbP4wEbi" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG.Hd7imy2qurfOyKpgj7Wm" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.1HlwL5CPeOkhbi2y6yT_" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.ij5cGidH80BfAg_Bvl9F" height="400" width="400" />
 </p>
 
 ## 项目介绍
