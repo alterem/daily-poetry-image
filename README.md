@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/25 06:15:59
+  最近一次生成时间: 2024/1/25 09:12:10
 </p>
 <p align="center">
-万条千缕绿相迎。舞烟眠雨过清明。
+青春须早为，岂能长少年。
 </p>
 <p align="center">
-<<浣溪沙·二月和风到碧城>> • 晏几道
+<<劝学>> • 孟郊
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG.uX9guxJiV0Um._DDzJhc" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG.2qEGPsjHkUgJ02DMcCw1" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG.fLL4Cw1X.Gfcjdwnd_XR" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG.ch7GbxE7ynXlWeejO3tA" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.XA0PnR69XqnJuRXYMH8m" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.2FreNfr5sdXDDTH9s22i" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG.M12RlgwTFIl78HjShiYY" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.RXpn8jkr._tIAHxKUa9b" height="400" width="400" />
 </p>
 
 ## 项目介绍
