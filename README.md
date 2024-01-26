@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/26 20:27:13
+  最近一次生成时间: 2024/1/27 00:22:33
 </p>
 <p align="center">
-休对故人思故国，且将新火试新茶。诗酒趁年华。
+天时怼兮威灵怒，严杀尽兮弃原野。
 </p>
 <p align="center">
-<<望江南·超然台作>> • 苏轼
+<<国殇>> • 屈原
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.KQFEfkiRz2UG8FWtgJ15" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.jfrUPvQVLDm.HIjXvPyZ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.IYTrziFGEop8GXOoVM0K" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4..q5H.6oaSeEGUF3AslF0" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.RTHtVWA7ng6UULdLaIYS" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG.Qp3zNv7n3X4hTHEiN0zW" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.T.C4d87_3NHbBV1vp_xL" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.2fX1.RynikPcakjID46x" height="400" width="400" />
 </p>
 
 ## 项目介绍
