@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/26 09:06:48
+  最近一次生成时间: 2024/1/26 10:25:07
 </p>
 <p align="center">
-最是仓皇辞庙日，教坊犹奏别离歌，垂泪对宫娥。
+只有一枝梧叶，不知多少秋声。
 </p>
 <p align="center">
-<<破阵子·四十年来家国>> • 李煜
+<<清平乐·候蛩凄断>> • 张炎
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.PiyRyXK6KNcwtc0UfBaR" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.DVHsFmmFwShGkcF9DIGc" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3..BrXZEDHjKfdqNVafkPl" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.fzYDYQb3W.zTaNIgUtAJ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.ciDH5UpKnUwN7v7LFrTz" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3..PrDLXsJgCSABAi0e7T0" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.doUjkFwcGgMOQdF4JJsh" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.hg00vSIRKg_dmQmKUQWq" height="400" width="400" />
 </p>
 
 ## 项目介绍
