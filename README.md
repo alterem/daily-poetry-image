@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/26 18:16:28
+  最近一次生成时间: 2024/1/26 20:27:13
 </p>
 <p align="center">
-穿天透地不辞劳，到底方知出处高。
+休对故人思故国，且将新火试新茶。诗酒趁年华。
 </p>
 <p align="center">
-<<咏瀑布>> • 冯云山
+<<望江南·超然台作>> • 苏轼
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.2utJ7Zyj_zmg2.y76HKZ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.Mf3PA2sssGib8Gpr8EdQ" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.AifY2yIE5b4dpbYpKqMK" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.1fYBN.XYVotvdpSmbQPB" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.KQFEfkiRz2UG8FWtgJ15" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.jfrUPvQVLDm.HIjXvPyZ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.IYTrziFGEop8GXOoVM0K" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4..q5H.6oaSeEGUF3AslF0" height="400" width="400" />
 </p>
 
 ## 项目介绍
