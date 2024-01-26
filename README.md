@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/26 10:25:07
+  最近一次生成时间: 2024/1/26 12:20:08
 </p>
 <p align="center">
-只有一枝梧叶，不知多少秋声。
+妾身独自眠，月圆人未圆。
 </p>
 <p align="center">
-<<清平乐·候蛩凄断>> • 张炎
+<<凭栏人·闺怨>> • 王元鼎
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.ciDH5UpKnUwN7v7LFrTz" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3..PrDLXsJgCSABAi0e7T0" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.doUjkFwcGgMOQdF4JJsh" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.hg00vSIRKg_dmQmKUQWq" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.ZgfIKnN3KzIscMr5pGoS" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4._facx9gLxkzz1SE6KoTV" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.3ipp8Cw5D.XJlJdjkSYW" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.lm6pCT3.XGINXpqyVuBC" height="400" width="400" />
 </p>
 
 ## 项目介绍
