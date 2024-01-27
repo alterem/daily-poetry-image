@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/27 18:14:48
+  最近一次生成时间: 2024/1/27 20:24:43
 </p>
 <p align="center">
-桃李风前多妩媚，杨柳更温柔。
+吴酒一杯春竹叶，吴娃双舞醉芙蓉。
 </p>
 <p align="center">
-<<武陵春·桃李风前多妩媚>> • 辛弃疾
+<<忆江南词三首>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.fpmBXWJA1cWZbOgc.qCA" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.LiqPm3eB1fKrLM0ym3uf" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.EP_inV2d7_t4h5Blcl9k" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.YF1WGKnKUWTB9uhEd6_E" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.i4JQo8c1qLCJ2BXq4hFZ" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.bQm5vCPz7wjXmpafjLGz" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.WHdrWZzVC5x50C3aOf3D" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.NjRlhRXONn.nwXlO.wFL" height="400" width="400" />
 </p>
 
 ## 项目介绍
