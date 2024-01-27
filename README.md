@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/27 20:24:43
+  最近一次生成时间: 2024/1/27 22:14:18
 </p>
 <p align="center">
-吴酒一杯春竹叶，吴娃双舞醉芙蓉。
+绿杨芳草长亭路。年少抛人容易去。
 </p>
 <p align="center">
-<<忆江南词三首>> • 白居易
+<<玉楼春·春恨>> • 晏殊
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.i4JQo8c1qLCJ2BXq4hFZ" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.bQm5vCPz7wjXmpafjLGz" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.WHdrWZzVC5x50C3aOf3D" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.NjRlhRXONn.nwXlO.wFL" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.ciylhRMboqWRawZCRL64" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.jfcTaUa_NZg1QTT3lDne" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.dya8OfGAplvD_Rl_POCa" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.Pn1Br58GCUXTzjbsJq65" height="400" width="400" />
 </p>
 
 ## 项目介绍
