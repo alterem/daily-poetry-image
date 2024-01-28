@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/28 09:09:51
+  最近一次生成时间: 2024/1/28 10:22:03
 </p>
 <p align="center">
-箫鼓喧，人影参差，满路飘香麝。
+明月照相思，也得姮娥念我痴。
 </p>
 <p align="center">
-<<解语花·上元>> • 周邦彦
+<<南乡子·戊申秋隽喜晤故人>> • 高鹗
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.zgFkt_CyOKr2qPzHxtHb" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.uN6wOxV7jWA3PYv4FL0k" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.737IIRUxL7mLyyHe42EC" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.waq29QTDHNWOqjwkxrFO" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.fYY9Mpp83oZKVM7MQNpp" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.IAZqqPTeqKJuNqEwer5V" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.kanptfaTHKLz2pCVE86q" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.6BvMSfmV2hckS3AV6QeR" height="400" width="400" />
 </p>
 
 ## 项目介绍
