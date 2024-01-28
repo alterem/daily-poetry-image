@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/28 18:15:21
+  最近一次生成时间: 2024/1/28 20:25:29
 </p>
 <p align="center">
-深涧饮渴虹，邃河生秋雷。
+烟霏霏。雪霏霏。雪向梅花枝上堆。
 </p>
 <p align="center">
-<<姑射山诗题曾山人壁>> • 惟凤
+<<长相思令·烟霏霏>> • 吴淑姬
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.5ul0cRS.dgYRN3Uar6iZ" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.kDjkLWHisngz3FJ1KodF" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.2.6zty5I6gcnmZfPG.BD" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.EoDRhrXbW0jz3Kyw2_rp" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.wv25OJd9t4vBtxb2TMrU" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.EE.Z_na0IEmUIS2e8tN." height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.bxZ8CT6jaALRoUIVPbeh" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.3eepHayo7vMYi2KrpXS6" height="400" width="400" />
 </p>
 
 ## 项目介绍
