@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/29 04:14:49
+  最近一次生成时间: 2024/1/29 06:14:05
 </p>
 <p align="center">
-青山朝别暮还见，嘶马出门思旧乡。
+慈母倚门情，游子行路苦。
 </p>
 <p align="center">
-<<送陈章甫>> • 李颀
+<<墨萱图·其一>> • 王冕
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG.NIjEpwEt4B.yhmbK1xyI" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG.rT4Ia9CFWSJz.Wdoo8Le" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG.gHCk3cQYVYu4OJopXjQB" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG.MwtjJUrMC2uqBoDMADIY" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.HdGqGKSLwXXwjN1uulDq" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.5e8XX_BXU6arkBkMnWqw" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.FgM4lWGJMEHInimgt50_" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.7h6G_F60CKOxGE6vOkkt" height="400" width="400" />
 </p>
 
 ## 项目介绍
