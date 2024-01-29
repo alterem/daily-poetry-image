@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/29 14:19:25
+  最近一次生成时间: 2024/1/29 16:18:37
 </p>
 <p align="center">
-秀色掩今古，荷花羞玉颜。
+笑别庐山远，何烦过虎溪。
 </p>
 <p align="center">
-<<西施 / 咏苎萝山>> • 李白
+<<别东林寺僧>> • 李白
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG.45SrOz4CYsQjU5MKoY46" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG.RQSqKqZvzgDyvp0Y4Jil" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG.OYXRcQE9i19rvCmNshNO" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG.RJFMHxd8t0HKqQhNC7rc" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG.yKqVL0rpRrtZY_ymB4Lz" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG.rIsjYE8njP0lwghQizS6" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG.otAoc9Ee9vh0sP1qC4F7" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG.Vt6x0txgT8HMVgHjL.0G" height="400" width="400" />
 </p>
 
 ## 项目介绍
