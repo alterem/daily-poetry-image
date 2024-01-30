@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/30 20:30:32
+  最近一次生成时间: 2024/1/31 06:14:32
 </p>
 <p align="center">
-长江如虹贯，蟠绕其下。
+迢递嵩高下，归来且闭关。
 </p>
 <p align="center">
-<<阅江楼记>> • 宋濂
+<<归嵩山作>> • 王维
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.eJmYEEejVxHq7bCzIi1U" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.0mKUfjABEn.OObl_Wik6" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.Uc7dqutIQrPizCtPNDhH" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.Lz2lX0zkVZ3oYcCOG083" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.LDjqRh0k8cINvX6afuE8" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.0i9z4xYqTEITRGJoIEMb" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.Br7LEcOetuMMIyX3SQoe" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.tQ8P3CDkMlnROXEO6SEI" height="400" width="400" />
 </p>
 
 ## 项目介绍
