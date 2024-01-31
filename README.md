@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/31 14:19:23
+  最近一次生成时间: 2024/1/31 16:18:19
 </p>
 <p align="center">
-欲寻芳草去，惜与故人违。
+红莲相倚浑如醉，白鸟无言定自愁。
 </p>
 <p align="center">
-<<留别王侍御维 / 留别王维>> • 孟浩然
+<<鹧鸪天·鹅湖归病起作>> • 辛弃疾
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.XvsGIrN1XugLmEy8rFlB" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.QC.hGNzcoRVjWpNU77kw" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.ae1uuwhh2ofTx2qkEksy" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.GryjlSEhGYdoKWEBSkfF" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.pRR2zsraV8wJ5iz3HvLc" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.Y4NzySBFmfhW4hqi9nyY" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.hBxoYJfNKnZcSWS0DUXX" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.SyyY6SkaUVthpQUwINwr" height="400" width="400" />
 </p>
 
 ## 项目介绍
