@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/31 20:27:55
+  最近一次生成时间: 2024/2/1 04:17:15
 </p>
 <p align="center">
-松下问童子，言师采药去。
+香炉初上日，瀑水喷成虹。
 </p>
 <p align="center">
-<<寻隐者不遇 / 孙革访羊尊师诗>> • 贾岛
+<<彭蠡湖中望庐山>> • 孟浩然
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.0Y3cfe3hQSFr.6e05hdv" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.xn1JPSjpKxwefpUBAW56" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.Vs2_zJ97xj3e0cTN3UGf" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.pA6EUuusezGSqD_Y25oX" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.OQS_dtRILO.nXAj3NggA" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.NVTdgsOC72rb4.jxP.tr" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1..9pCRgmTA9rfUSXb04yK" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.JKmDVDeBDnYBWMmprOec" height="400" width="400" />
 </p>
 
 ## 项目介绍
