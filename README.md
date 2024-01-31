@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/31 16:18:19
+  最近一次生成时间: 2024/1/31 18:15:52
 </p>
 <p align="center">
-红莲相倚浑如醉，白鸟无言定自愁。
+遥知湖上一樽酒，能忆天涯万里人。
 </p>
 <p align="center">
-<<鹧鸪天·鹅湖归病起作>> • 辛弃疾
+<<春日西湖寄谢法曹歌>> • 欧阳修
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.pRR2zsraV8wJ5iz3HvLc" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.Y4NzySBFmfhW4hqi9nyY" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.hBxoYJfNKnZcSWS0DUXX" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.SyyY6SkaUVthpQUwINwr" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.oEv3Ni.LPe8ibkhpNrB6" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.wa8tFsLDdh.hCCjkjyNL" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.0mGAYuHVBx_1TCkIv2MU" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.QmQxQRw8Wks33Kr8w6r2" height="400" width="400" />
 </p>
 
 ## 项目介绍
