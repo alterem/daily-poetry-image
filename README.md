@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/31 10:21:27
+  最近一次生成时间: 2024/1/31 12:18:04
 </p>
 <p align="center">
-日照香炉生紫烟，遥看瀑布挂前川。
+故园今夕是元宵，独向蛮村坐寂寥。
 </p>
 <p align="center">
-<<望庐山瀑布>> • 李白
+<<元夕二首>> • 王守仁
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.GGPKJC1ACcYa7ho.Lphc" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.r699c5WLEpTJDpFhyL2d" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.WCK27Rx24tSZLw_YrJha" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.ienC6a9Ni23Cb3wREE7m" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.Sj9gsnHmBgKrgRHMiWF5" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.d2zkL2oym.VwBodiajnE" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.ODHbFnQsSTkjr22R6V8U" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.ulDEdMS9V16wqCoBS7ul" height="400" width="400" />
 </p>
 
 ## 项目介绍
