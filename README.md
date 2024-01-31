@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/31 18:15:52
+  最近一次生成时间: 2024/1/31 20:27:55
 </p>
 <p align="center">
-遥知湖上一樽酒，能忆天涯万里人。
+松下问童子，言师采药去。
 </p>
 <p align="center">
-<<春日西湖寄谢法曹歌>> • 欧阳修
+<<寻隐者不遇 / 孙革访羊尊师诗>> • 贾岛
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.oEv3Ni.LPe8ibkhpNrB6" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.wa8tFsLDdh.hCCjkjyNL" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.0mGAYuHVBx_1TCkIv2MU" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.QmQxQRw8Wks33Kr8w6r2" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.0Y3cfe3hQSFr.6e05hdv" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.xn1JPSjpKxwefpUBAW56" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.Vs2_zJ97xj3e0cTN3UGf" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.pA6EUuusezGSqD_Y25oX" height="400" width="400" />
 </p>
 
 ## 项目介绍
