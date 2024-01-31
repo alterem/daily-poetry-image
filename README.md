@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/1/31 06:14:32
+  最近一次生成时间: 2024/1/31 10:21:27
 </p>
 <p align="center">
-迢递嵩高下，归来且闭关。
+日照香炉生紫烟，遥看瀑布挂前川。
 </p>
 <p align="center">
-<<归嵩山作>> • 王维
+<<望庐山瀑布>> • 李白
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.LDjqRh0k8cINvX6afuE8" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.0i9z4xYqTEITRGJoIEMb" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.Br7LEcOetuMMIyX3SQoe" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.tQ8P3CDkMlnROXEO6SEI" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.GGPKJC1ACcYa7ho.Lphc" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.r699c5WLEpTJDpFhyL2d" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.WCK27Rx24tSZLw_YrJha" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.ienC6a9Ni23Cb3wREE7m" height="400" width="400" />
 </p>
 
 ## 项目介绍
