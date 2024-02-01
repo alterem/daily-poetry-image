@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/1 16:18:50
+  最近一次生成时间: 2024/2/1 18:17:00
 </p>
 <p align="center">
-近重阳、偏多风雨，绝怜此日暄明。
+此花此叶常相映，翠减红衰愁杀人。
 </p>
 <p align="center">
-<<紫萸香慢·近重阳>> • 姚云文
+<<赠荷花>> • 李商隐
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.ZOusRlrZFo_lJbIKH.n." height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.YW9ZwoPKNy_Yj0P_e674" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.TvHSq2jEXme9uPHlH6Dh" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.8FxA8A8Ub3gd3Sl410z4" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.QEtnzs4I1dMfhjlPjA5b" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.e8HZqo72E1rxKXlgZBMi" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.AgnlgYjIoKSXPP_Sy54M" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.nzy9kAwnnS_x4QhkWRtb" height="400" width="400" />
 </p>
 
 ## 项目介绍
