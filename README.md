@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/1 20:27:42
+  最近一次生成时间: 2024/2/2 02:19:29
 </p>
 <p align="center">
-两情缠绵忽如故。复畏秋风生晓路。
+自闻颖师弹，起坐在一旁。
 </p>
 <p align="center">
-<<七夕曲>> • 王建
+<<听颖师弹琴>> • 韩愈
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.3gjDmtmA8rXewU8UOJ1f" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.TSCzi12L6PSW5Y9Mm_XN" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.vukFyVzTLNUu3aHESkoi" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.XXWh9U0elTkDXjEStXrW" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.ARp3VV0ftLrI20VFk1gK" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.epNdi3tBRkpt88OhURei" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.ODnCoQF9Ds4kEluGJ6BD" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.AlKIXgMzxabsKDXuNPgo" height="400" width="400" />
 </p>
 
 ## 项目介绍
