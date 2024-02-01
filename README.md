@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/1 18:17:00
+  最近一次生成时间: 2024/2/1 20:27:42
 </p>
 <p align="center">
-此花此叶常相映，翠减红衰愁杀人。
+两情缠绵忽如故。复畏秋风生晓路。
 </p>
 <p align="center">
-<<赠荷花>> • 李商隐
+<<七夕曲>> • 王建
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.QEtnzs4I1dMfhjlPjA5b" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.e8HZqo72E1rxKXlgZBMi" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.AgnlgYjIoKSXPP_Sy54M" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.nzy9kAwnnS_x4QhkWRtb" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.3gjDmtmA8rXewU8UOJ1f" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.TSCzi12L6PSW5Y9Mm_XN" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.vukFyVzTLNUu3aHESkoi" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.XXWh9U0elTkDXjEStXrW" height="400" width="400" />
 </p>
 
 ## 项目介绍
