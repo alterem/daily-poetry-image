@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/3 02:20:09
+  最近一次生成时间: 2024/2/3 04:15:22
 </p>
 <p align="center">
-香炉初上日，瀑水喷成虹。
+白锦无纹香烂漫，玉树琼葩堆雪。
 </p>
 <p align="center">
-<<彭蠡湖中望庐山>> • 孟浩然
+<<无俗念·灵虚宫梨花词>> • 丘处机
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.2AdNcvWwaFSG7EcLf7MG" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.rSn_jZcmXdYpEYrfj3Xt" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.gBAsQsH2GkOcDVUf0kCP" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.GnK9yznVEUkGualcjzpH" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.uDsyDkwZEySkEBw_dHXE" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.rjvyFRwGz9n7j3Qy3Kj5" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.r8U_A.vuXTqn0X0G5PWC" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.naNj4I75f_SGzXc2jiZE" height="400" width="400" />
 </p>
 
 ## 项目介绍
