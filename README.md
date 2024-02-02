@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/2 14:19:05
+  最近一次生成时间: 2024/2/2 16:18:41
 </p>
 <p align="center">
-野童扶醉舞，山鸟助酣歌。
+曲终人醉。多似浔阳江上泪。
 </p>
 <p align="center">
-<<夏日浮舟过陈大水亭 / 浮舟过滕逸人别业>> • 孟浩然
+<<减字木兰花·刘郎已老>> • 朱敦儒
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.hZZrSvc4JHKbVoHojCie" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.5RIAMbV8B1c9_D6cDoCw" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.7kxdlSRUnKCawJH31Pz6" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.Fw_z0LKtaQkfe8eYf82k" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.ZbO8EsYhp_rekRmP3XnY" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.xLqNm0Y_V3eW4i7e4tDw" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.8KhXZqVS7ZaHYdDQJzUf" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.arWXXMHKfymCBV_AYjFb" height="400" width="400" />
 </p>
 
 ## 项目介绍
