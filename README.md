@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/2 16:18:41
+  最近一次生成时间: 2024/2/2 18:16:07
 </p>
 <p align="center">
-曲终人醉。多似浔阳江上泪。
+长江如虹贯，蟠绕其下。
 </p>
 <p align="center">
-<<减字木兰花·刘郎已老>> • 朱敦儒
+<<阅江楼记>> • 宋濂
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.ZbO8EsYhp_rekRmP3XnY" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.xLqNm0Y_V3eW4i7e4tDw" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.8KhXZqVS7ZaHYdDQJzUf" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.arWXXMHKfymCBV_AYjFb" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.6wrEJAXAorJDT66Nyp7t" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.3Re8cdjuLvoqQUj40nNt" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.0VK58qN.oBqUJhf0vww0" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.AuD25dwbO6MZ6ETL6cxA" height="400" width="400" />
 </p>
 
 ## 项目介绍
