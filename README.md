@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/3 00:19:46
+  最近一次生成时间: 2024/2/3 02:20:09
 </p>
 <p align="center">
-当年曾胜赏，生香熏袖，活火分茶。
+香炉初上日，瀑水喷成虹。
 </p>
 <p align="center">
-<<转调满庭芳·芳草池塘>> • 李清照
+<<彭蠡湖中望庐山>> • 孟浩然
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.BI4yIDJBdmQVA.ateXkX" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.ImpWSRxRmp0wPhc5vhx9" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.U1RkUcQmP8I7Su8A0aNU" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.7Njyx2dRx84BSioR4DWu" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.2AdNcvWwaFSG7EcLf7MG" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.rSn_jZcmXdYpEYrfj3Xt" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.gBAsQsH2GkOcDVUf0kCP" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.GnK9yznVEUkGualcjzpH" height="400" width="400" />
 </p>
 
 ## 项目介绍
