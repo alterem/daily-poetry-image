@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/3 10:17:56
+  最近一次生成时间: 2024/2/3 12:16:54
 </p>
 <p align="center">
-乌鹊倦栖，鱼龙惊起，星斗挂垂杨。
+尘世难逢一笑，况有紫萸黄菊，堪插满头归。
 </p>
 <p align="center">
-<<一丛花·溪堂玩月作>> • 陈亮
+<<水调歌头·隐括杜牧之齐山诗>> • 朱熹
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.DPBCLdBekQSt7JOa4wVK" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.Qqr0_F8UjhpmmlGWZHeJ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.xTRy2eVRe3KWV9zgACG5" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.Lmp7Ip1iBcSEbhhguQAX" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.t135WcQAKXJ5U263ao3a" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.LJU.r_7kwo_j2.U62dTQ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.uyLyqbsxQyjmUxOiYa66" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.x54TTYnnjDC1Sv90Jt7d" height="400" width="400" />
 </p>
 
 ## 项目介绍
