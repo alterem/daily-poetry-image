@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/3 06:14:06
+  最近一次生成时间: 2024/2/3 09:04:00
 </p>
 <p align="center">
-将军发白马，旌节度黄河。
+白马黄金塞，云砂绕梦思。
 </p>
 <p align="center">
-<<发白马>> • 李白
+<<塞下曲六首>> • 李白
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.XGhNxscEz27qodS6ibLl" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.8zn1dKDIGDT5RVXRmR.x" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.M4NBs9dHLBi.T1JLEPTX" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.2ZDHZrKayacXeR4c0.KP" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.DGxLQ8QhWHlrkyGxYGFx" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.pkxxLEaYALwxJirXv8wO" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.KRpMB2If8HPdyCQTbD25" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.kOQJYnldRIWS2oCDqI4Z" height="400" width="400" />
 </p>
 
 ## 项目介绍
