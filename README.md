@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/3 09:04:00
+  最近一次生成时间: 2024/2/3 10:17:56
 </p>
 <p align="center">
-白马黄金塞，云砂绕梦思。
+乌鹊倦栖，鱼龙惊起，星斗挂垂杨。
 </p>
 <p align="center">
-<<塞下曲六首>> • 李白
+<<一丛花·溪堂玩月作>> • 陈亮
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.DGxLQ8QhWHlrkyGxYGFx" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.pkxxLEaYALwxJirXv8wO" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.KRpMB2If8HPdyCQTbD25" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.kOQJYnldRIWS2oCDqI4Z" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.DPBCLdBekQSt7JOa4wVK" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.Qqr0_F8UjhpmmlGWZHeJ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.xTRy2eVRe3KWV9zgACG5" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.Lmp7Ip1iBcSEbhhguQAX" height="400" width="400" />
 </p>
 
 ## 项目介绍
