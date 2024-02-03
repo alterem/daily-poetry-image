@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/3 16:17:55
+  最近一次生成时间: 2024/2/3 18:14:22
 </p>
 <p align="center">
-风急桃花也似愁，点点飞红雨。
+去年离别雁初归，今夜裁缝萤已飞。
 </p>
 <p align="center">
-<<楚天遥过清江引·有意送春归>> • 如晦
+<<闺怨 / 怨诗>> • 张纮
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.T95cj8kDWbIg.ZvNC8Gi" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.IROvJGqewS0e9DSU_XRB" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.4DPpO2xwFK1eTPIhlqMq" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.a6N66RHuNBeY6gn9H_9e" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.tKY_4V8r_630FyzVOrAA" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.7BBc5NysARZSDZXrsUNm" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.NO3PHlljDQsxoBJ9nop6" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.nh12285sFWlGe8iQMYtl" height="400" width="400" />
 </p>
 
 ## 项目介绍
