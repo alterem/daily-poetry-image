@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/3 18:14:22
+  最近一次生成时间: 2024/2/3 20:26:00
 </p>
 <p align="center">
-去年离别雁初归，今夜裁缝萤已飞。
+团扇，团扇，美人病来遮面。
 </p>
 <p align="center">
-<<闺怨 / 怨诗>> • 张纮
+<<宫中调笑·团扇>> • 王建
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.tKY_4V8r_630FyzVOrAA" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.7BBc5NysARZSDZXrsUNm" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.NO3PHlljDQsxoBJ9nop6" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.nh12285sFWlGe8iQMYtl" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.6kFxC29wYLOcSWipvV4O" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.dDpwnb3GU2klPrELIXKp" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.TTvY6dj72RVkvPPP59fh" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.AVmDfgMEuNEBEFTGCA07" height="400" width="400" />
 </p>
 
 ## 项目介绍
