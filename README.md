@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/3 12:16:54
+  最近一次生成时间: 2024/2/3 14:17:47
 </p>
 <p align="center">
-尘世难逢一笑，况有紫萸黄菊，堪插满头归。
+归装渐理君知否？笑指庐山古涧藤。
 </p>
 <p align="center">
-<<水调歌头·隐括杜牧之齐山诗>> • 朱熹
+<<自咏示客>> • 陆游
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.t135WcQAKXJ5U263ao3a" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.LJU.r_7kwo_j2.U62dTQ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.uyLyqbsxQyjmUxOiYa66" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.x54TTYnnjDC1Sv90Jt7d" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.OQfPwh3VWDBzUCd00Jcv" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.0Pd6zs41PEvBiejcugqo" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.2B2EmvCpoCiF4jZ.UZ6w" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.rmTW7TPH_OOJGhGIrwL." height="400" width="400" />
 </p>
 
 ## 项目介绍
