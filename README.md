@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/3 20:26:00
+  最近一次生成时间: 2024/2/3 22:13:03
 </p>
 <p align="center">
-团扇，团扇，美人病来遮面。
+日斜江上孤帆影，草绿湖南万里情。
 </p>
 <p align="center">
-<<宫中调笑·团扇>> • 王建
+<<别严士元>> • 刘长卿
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.6kFxC29wYLOcSWipvV4O" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.dDpwnb3GU2klPrELIXKp" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.TTvY6dj72RVkvPPP59fh" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.AVmDfgMEuNEBEFTGCA07" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.CmY4ZDkgE.kmQHSSMsd4" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.lbuGdXqUb1C1ehTEb9U0" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.WHka_035kSepKPIrQeUU" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.c8PBqoX2NzB_tA2w0sFt" height="400" width="400" />
 </p>
 
 ## 项目介绍
