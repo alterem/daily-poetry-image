@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/3 22:13:03
+  最近一次生成时间: 2024/2/4 00:20:00
 </p>
 <p align="center">
-日斜江上孤帆影，草绿湖南万里情。
+小姑织白纻，未解将人语。
 </p>
 <p align="center">
-<<别严士元>> • 刘长卿
+<<湖边采莲妇>> • 李白
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.CmY4ZDkgE.kmQHSSMsd4" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.lbuGdXqUb1C1ehTEb9U0" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.WHka_035kSepKPIrQeUU" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.c8PBqoX2NzB_tA2w0sFt" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.s.HkLBoJYK_uC4euIrV9" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.aS9KhLxiSz7EznsbGBet" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.8wUvfcQ9olcoQd3Lo_jv" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.C_VrzWIQkkJDRXskFC.0" height="400" width="400" />
 </p>
 
 ## 项目介绍
