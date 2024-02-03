@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/4 04:16:49
+  最近一次生成时间: 2024/2/4 06:15:19
 </p>
 <p align="center">
-唤起封姨清晚景，更将荔子荐新圆。
+世间珍果更无加，玉雪肌肤罩绛纱。
 </p>
 <p align="center">
-<<浣溪沙·中秋坐上十八客>> • 张孝祥
+<<咏荔枝>> • 丘浚
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.xadBjTXYXO.dMyIN19hn" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.WR5X8t8EiHaoBgZDWggF" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.8d3jn1nc24ZJmukmmoLX" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.7b.ZjqD54VPtR5pDL.Si" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.Wxx0o5m8GvEbZGzpxaf7" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.2sUk1Zp8NLbUnUj2PFkA" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.UgFCa7yJbJCJrMYxRUPj" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.72q0oAFkEfL6moir_0tM" height="400" width="400" />
 </p>
 
 ## 项目介绍
