@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/4 18:15:11
+  最近一次生成时间: 2024/2/4 20:25:29
 </p>
 <p align="center">
-慈母手中线，游子身上衣。
+浔阳江头夜送客，枫叶荻花秋瑟瑟。
 </p>
 <p align="center">
-<<游子吟 / 迎母漂上作>> • 孟郊
+<<琵琶行 / 琵琶引>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.4SlDlXEoA4aWF6jCj3I9" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.6PpTSS_bEkCydqN50UpI" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.4DomNZKfsSOk12S4PbPF" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.rGgsMXz8eUkOFaAKSzoK" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.Iz0TmkO4PUoJI.jsiD2p" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.AI1JyhKuAWqY_xJ4qcRr" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.qWUz.fbD4iM1MgArwuvz" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.0Ve5w6qRLJiRv8A5vkEK" height="400" width="400" />
 </p>
 
 ## 项目介绍
