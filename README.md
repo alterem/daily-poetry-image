@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/4 20:25:29
+  最近一次生成时间: 2024/2/4 22:12:45
 </p>
 <p align="center">
-浔阳江头夜送客，枫叶荻花秋瑟瑟。
+西登香炉峰，南见瀑布水。
 </p>
 <p align="center">
-<<琵琶行 / 琵琶引>> • 白居易
+<<望庐山瀑布水二首>> • 李白
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.Iz0TmkO4PUoJI.jsiD2p" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.AI1JyhKuAWqY_xJ4qcRr" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.qWUz.fbD4iM1MgArwuvz" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.0Ve5w6qRLJiRv8A5vkEK" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2..BpFXj_ViipkySjivNHS" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.danyq7QTgQwNSPUxBgkG" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.b4zuQHa4u3mJJf9AEcJx" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.5za7wgVQRWvSESaT80Fo" height="400" width="400" />
 </p>
 
 ## 项目介绍
