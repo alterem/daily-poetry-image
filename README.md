@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/4 12:16:54
+  最近一次生成时间: 2024/2/4 14:17:55
 </p>
 <p align="center">
-童子柳阴眠正着，一牛吃过柳阴西。
+星点点，月团团。倒流河汉入杯盘。
 </p>
 <p align="center">
-<<桑茶坑道中>> • 杨万里
+<<鹧鸪天·雪照山城玉指寒>> • 刘著
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.ygDVqjdSC9RK9kkLNvqO" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.6UqlbXh2L85T.ql8X18u" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.1CmAsqZgLRmPOWJtcpwq" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.kzUPxV573aQqakkMBxMr" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.ZFS1wnsQohz_1AxyJ4j6" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.FpWHhTvcK6x4hS8pRl.Z" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.0cIK6zb8OqHmDewrtQfe" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.v_4xBZ7YYDgkBjn65C8i" height="400" width="400" />
 </p>
 
 ## 项目介绍
