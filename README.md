@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/4 16:17:33
+  最近一次生成时间: 2024/2/4 18:15:11
 </p>
 <p align="center">
-风雨端阳生晦冥，汨罗无处吊英灵。
+慈母手中线，游子身上衣。
 </p>
 <p align="center">
-<<已酉端午>> • 贝琼
+<<游子吟 / 迎母漂上作>> • 孟郊
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.Gd6rlVdF9ztFj0pXCqQt" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.bkupcTzxNExaCPShC5Wy" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.7fEo8aWYFh444k2jFsYa" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4._IvpkSvRhO0QE7c7PJXF" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.4SlDlXEoA4aWF6jCj3I9" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.6PpTSS_bEkCydqN50UpI" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.4DomNZKfsSOk12S4PbPF" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.rGgsMXz8eUkOFaAKSzoK" height="400" width="400" />
 </p>
 
 ## 项目介绍
