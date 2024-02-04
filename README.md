@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/4 22:12:45
+  最近一次生成时间: 2024/2/5 00:18:57
 </p>
 <p align="center">
-西登香炉峰，南见瀑布水。
+山重水复疑无路，柳暗花明又一村。
 </p>
 <p align="center">
-<<望庐山瀑布水二首>> • 李白
+<<游山西村>> • 陆游
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2..BpFXj_ViipkySjivNHS" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.danyq7QTgQwNSPUxBgkG" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.b4zuQHa4u3mJJf9AEcJx" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.5za7wgVQRWvSESaT80Fo" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.bpyW.lAl5hYXRDlHzmos" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.3y0fYwRFuFouHPCUzLAv" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.ubHR3XllSa3XgnnKrZAI" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.E.BbJ8lTOJAQTS.Sn48N" height="400" width="400" />
 </p>
 
 ## 项目介绍
