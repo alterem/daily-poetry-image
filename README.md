@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/5 12:19:14
+  最近一次生成时间: 2024/2/5 14:19:39
 </p>
 <p align="center">
-哀哀父母，生我劳瘁。
+红莲相倚浑如醉，白鸟无言定自愁。
 </p>
 <p align="center">
-<<蓼莪>> • 佚名
+<<鹧鸪天·鹅湖归病起作>> • 辛弃疾
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.4Z8HI2Pu98zsEOAsBaQo" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.DYslzMkQNx6rxvKEnKEB" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.IcVbMhomgzFjxmHwxgZB" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.03Cr2x5ud9545iZ0JStp" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.rf_YAnjC36.E.f_wUCko" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.l00Z7CAV6rowBJBwyxXH" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.6urZNcyCnx5i81vxl2lh" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.qmnZVCp.ht7a56V8mb0x" height="400" width="400" />
 </p>
 
 ## 项目介绍
