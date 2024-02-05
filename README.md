@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/6 00:20:19
+  最近一次生成时间: 2024/2/6 02:21:16
 </p>
 <p align="center">
-顺风而呼，声非加疾也，而闻者彰。
+千里江山寒色远，芦花深处泊孤舟，笛在月明楼。
 </p>
 <p align="center">
-<<劝学>> • 荀子
+<<望江南·闲梦远>> • 李煜
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.kwKPAAZkQ1gKfBrhpXSU" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.HLaRn3KWarRG7rAAYlF5" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.Qj3_BvK4_V6Zq1QLzXFl" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.yovXOixYOszs9qpS7zvq" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.W23c3QF0jpWyZ0fK.hO9" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.ariQotorNbOsH2b4Le8A" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.w79AyJyADynvFTNpP8uk" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.tm3elzmL0nMxOcMI5T1z" height="400" width="400" />
 </p>
 
 ## 项目介绍
