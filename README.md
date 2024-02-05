@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/6 02:21:16
+  最近一次生成时间: 2024/2/6 04:17:00
 </p>
 <p align="center">
-千里江山寒色远，芦花深处泊孤舟，笛在月明楼。
+故园今夕是元宵，独向蛮村坐寂寥。
 </p>
 <p align="center">
-<<望江南·闲梦远>> • 李煜
+<<元夕二首>> • 王守仁
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.W23c3QF0jpWyZ0fK.hO9" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.ariQotorNbOsH2b4Le8A" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.w79AyJyADynvFTNpP8uk" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.tm3elzmL0nMxOcMI5T1z" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.ERojTBCgME3Wt3jG45xP" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.WHl9pFW8.4pu9U.E4nRv" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.IfpGbtw9.vviLvLmSvKr" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.74UzqEZG2Oc2TSDwYCkx" height="400" width="400" />
 </p>
 
 ## 项目介绍
