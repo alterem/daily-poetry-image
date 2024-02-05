@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/6 04:17:00
+  最近一次生成时间: 2024/2/6 06:16:27
 </p>
 <p align="center">
-故园今夕是元宵，独向蛮村坐寂寥。
+相思已是不曾闲，又那得、工夫咒你。
 </p>
 <p align="center">
-<<元夕二首>> • 王守仁
+<<鹊桥仙·说盟说誓>> • 蜀妓
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.ERojTBCgME3Wt3jG45xP" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.WHl9pFW8.4pu9U.E4nRv" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.IfpGbtw9.vviLvLmSvKr" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.74UzqEZG2Oc2TSDwYCkx" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.STn_PF6P._JF33rw49Hz" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.tzoijS0ouweJlGvT_e3Y" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2...bMKWhU1kdphwRU0x5u" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.4DHglrJG4InE8qnoRMsy" height="400" width="400" />
 </p>
 
 ## 项目介绍
