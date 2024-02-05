@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/5 20:27:59
+  最近一次生成时间: 2024/2/6 00:20:19
 </p>
 <p align="center">
-午枕梦初残，高楼上，独凭阑干。
+顺风而呼，声非加疾也，而闻者彰。
 </p>
 <p align="center">
-<<青杏儿·秋>> • 朱栴
+<<劝学>> • 荀子
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.c4jdnlYl9zzu1S59acnd" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.TAqmIjP8k.Z9ZMOlwH.8" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.Ig0.B7keEw7zZd4HBGh." height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.XOXPf9FHGSuGLaTOp66H" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.kwKPAAZkQ1gKfBrhpXSU" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.HLaRn3KWarRG7rAAYlF5" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.Qj3_BvK4_V6Zq1QLzXFl" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.yovXOixYOszs9qpS7zvq" height="400" width="400" />
 </p>
 
 ## 项目介绍
