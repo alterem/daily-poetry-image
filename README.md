@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/6 09:04:56
+  最近一次生成时间: 2024/2/6 10:20:18
 </p>
 <p align="center">
-人老去西风白发，蝶愁来明日黄花。
+满目山河增感慨，一时风景寄遨游。
 </p>
 <p align="center">
-<<折桂令·九日>> • 张可久
+<<摘星楼九日登临>> • 姜塘
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.zBzjtrF1pVsTX6QJK6xM" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.WiuUdxEVRTpY7zFS28ST" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.zpMCnPI.p_jGQG7gSUhD" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.4u02Mcp69kxMeH95xLbJ" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.1r7mm3Ow04N__9Z2G55I" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.WiJ6OABz7oc94ep7MfL2" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.oRQV.2glk63Dvb9067Am" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.jrSQtJB2kehjMvJdNG4Q" height="400" width="400" />
 </p>
 
 ## 项目介绍
