@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/6 18:16:20
+  最近一次生成时间: 2024/2/6 20:28:14
 </p>
 <p align="center">
-晚风庭院落梅初。淡云来往月疏疏。
+寄言俦侣，莫负广寒沈醉。
 </p>
 <p align="center">
-<<浣溪沙·髻子伤春慵更梳>> • 李清照
+<<念奴娇·中秋对月>> • 文征明
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.6HoX_stnWcUnnmpAzLBY" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.yD_cyrMacQRmMsdtLz6s" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.ONxXpjZ67DJTWw.5ixA5" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.UU7Nh7CLPEkikmabTYdI" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.lqWJHkOQb7JpUiGuvDCo" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.AEc4X.YVpqsnFJ_.De8X" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.wJ99PqM0JHQcpCLlxERb" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.rU2TmsKtszZ3p..6xAED" height="400" width="400" />
 </p>
 
 ## 项目介绍
