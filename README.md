@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/7 18:16:21
+  最近一次生成时间: 2024/2/7 20:27:43
 </p>
 <p align="center">
-中山人予之猫，猫善捕鼠及鸡。
+十年无梦得还家，独立青峰野水涯。
 </p>
 <p align="center">
-<<乞猫>> • 刘基
+<<武夷山中>> • 谢枋得
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4._n13rjWBeO4HWrM2PxM1" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.C_tzz2vZ1LRVpmmx7UGr" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.xqTTJ3U1psMqL2JtwAVJ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.kSFox_x2HHJwTCo6hAhn" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.tJIP6w23NH2WH7FHazsZ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.XXpVr7Vzey3yLAdtqiX7" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.pP_.H3mOx20Up9C71uaL" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.p8XZpHM16xCCFis31NWm" height="400" width="400" />
 </p>
 
 ## 项目介绍
