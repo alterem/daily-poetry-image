@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/8 04:15:36
+  最近一次生成时间: 2024/2/8 06:14:21
 </p>
 <p align="center">
-轻汗微微透碧纨，明朝端午浴芳兰。
+东南第一名州，西湖自古多佳丽。
 </p>
 <p align="center">
-<<浣溪沙·端午>> • 苏轼
+<<水龙吟·西湖怀古>> • 陈德武
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.DjsVXoP94oXT4pLQGBPu" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.Oqy6kk0KnXzXJEr_Y5iD" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.HCefpbjAvcV3.rwr_syI" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.x0ikiyxOduxKkU7yIeoR" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.GAi9cjGtVhmeWIrPmNwp" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.7Xzw0HGRzYvXAbTutsu7" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.H3VZIH5z0aQJ8oAXvVo_" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.AhNqrCxdtxW75hW7rARp" height="400" width="400" />
 </p>
 
 ## 项目介绍
