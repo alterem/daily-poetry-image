@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/7 20:27:43
+  最近一次生成时间: 2024/2/7 22:15:03
 </p>
 <p align="center">
-十年无梦得还家，独立青峰野水涯。
+丈夫贫贱应未足，今日相逢无酒钱。
 </p>
 <p align="center">
-<<武夷山中>> • 谢枋得
+<<别董大二首>> • 高适
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.tJIP6w23NH2WH7FHazsZ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.XXpVr7Vzey3yLAdtqiX7" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.pP_.H3mOx20Up9C71uaL" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.p8XZpHM16xCCFis31NWm" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.jvou1ZIK8K0DGV.zoqYy" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.NBTNz_f_vbrvb6pLF.JO" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.qi2qXvb8UQhI8AzNG7kb" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.evETN59OCUH8v3z8IGG6" height="400" width="400" />
 </p>
 
 ## 项目介绍
