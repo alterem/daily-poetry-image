@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/7 10:20:07
+  最近一次生成时间: 2024/2/7 12:18:20
 </p>
 <p align="center">
-一骑红尘妃子笑，无人知是荔枝来。
+终南阴岭秀，积雪浮云端。
 </p>
 <p align="center">
-<<过华清宫绝句三首>> • 杜牧
+<<终南望余雪>> • 祖咏
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.yEMWhhTnOH4Nmf50PZWN" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.3rOUrYD0FUgoWBxF2mPW" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.HQtCosSsrSw0yl8skIsw" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.xuFjj6Mp3v8ff6BRZnW0" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.ikxZk4Kgcu60p.DU2giC" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.s04fs.bacay5gmUs.QbE" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.e.1zNBA6WZSCHQDx8rSl" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.deQvFprhUrLEdTLdKwTH" height="400" width="400" />
 </p>
 
 ## 项目介绍
