@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/7 16:18:17
+  最近一次生成时间: 2024/2/7 18:16:21
 </p>
 <p align="center">
-细看不是雪无香，天风吹得香零落。
+中山人予之猫，猫善捕鼠及鸡。
 </p>
 <p align="center">
-<<踏莎行·雪中看梅花>> • 王旭
+<<乞猫>> • 刘基
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2..UXeyAGW1cApfEMq08lj" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.WPszKPdddfKW3KsE6DYo" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.5cR53xA1fe3kGpcUlBUb" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.NFHUq.QoKQI_AUQ35cTH" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4._n13rjWBeO4HWrM2PxM1" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.C_tzz2vZ1LRVpmmx7UGr" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.xqTTJ3U1psMqL2JtwAVJ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.kSFox_x2HHJwTCo6hAhn" height="400" width="400" />
 </p>
 
 ## 项目介绍
