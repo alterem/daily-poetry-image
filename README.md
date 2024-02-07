@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/8 02:19:48
+  最近一次生成时间: 2024/2/8 04:15:36
 </p>
 <p align="center">
-春近寒虽转，梅舒雪尚飘。
+轻汗微微透碧纨，明朝端午浴芳兰。
 </p>
 <p align="center">
-<<雪里梅花诗>> • 阴铿
+<<浣溪沙·端午>> • 苏轼
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.l3q7VFVuTO35p4oRa0Ls" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.8VSH9.ZoqyySCvMsDIgc" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.jgTOz19fMWI0HgodWcmY" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.1hnYnih5_SpZ79lXJTa1" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.DjsVXoP94oXT4pLQGBPu" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.Oqy6kk0KnXzXJEr_Y5iD" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.HCefpbjAvcV3.rwr_syI" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.x0ikiyxOduxKkU7yIeoR" height="400" width="400" />
 </p>
 
 ## 项目介绍
