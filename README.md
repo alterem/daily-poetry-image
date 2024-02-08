@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/8 14:19:57
+  最近一次生成时间: 2024/2/8 16:18:19
 </p>
 <p align="center">
-两岸荔枝红，万家烟雨中。
+春蚕到死丝方尽，蜡炬成灰泪始干。
 </p>
 <p align="center">
-<<菩萨蛮·子规啼破城楼月>> • 李师中
+<<无题·相见时难别亦难>> • 李商隐
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.cO7eC1HomVpyIM75sx7G" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2._Rh3bErYqlzQdQ7HR.E9" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.iW6XjqmPH1V4kGGItGuO" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2...QhwhmzLWjBpiYOnHA0" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.XrH.CaMYZBUPqZSUx7ou" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.2dAxpUxHCNu8iZ.__ZwW" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.RFV3sb8vtqIE_r66h2aG" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.3TnGB_hTIRZUNSUqEvpG" height="400" width="400" />
 </p>
 
 ## 项目介绍
