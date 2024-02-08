@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/8 22:14:44
+  最近一次生成时间: 2024/2/9 00:20:59
 </p>
 <p align="center">
-终罢斯结庐，慕陶直可庶。
+世间珍果更无加，玉雪肌肤罩绛纱。
 </p>
 <p align="center">
-<<东郊>> • 韦应物
+<<咏荔枝>> • 丘浚
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.7GAOlUK2yVtFXxbQDpmN" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.VVYvyaPKFKHYDKbgY6lk" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.UAyS_QQDsiiVzUKVgM3_" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.jjV1IL1mgZhdMgV2_QhZ" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.Vt4v2DsLItAZq3CmjnAl" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.EpAvfVqTQUYOVhndPh_Y" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.CZ1P.k4j5nZtCqcrruX1" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.4T0VGp1KZBWhDAPtxOwP" height="400" width="400" />
 </p>
 
 ## 项目介绍
