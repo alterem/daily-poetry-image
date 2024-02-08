@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/8 16:18:19
+  最近一次生成时间: 2024/2/8 18:15:28
 </p>
 <p align="center">
-春蚕到死丝方尽，蜡炬成灰泪始干。
+菱叶萦波荷飐风，荷花深处小船通。
 </p>
 <p align="center">
-<<无题·相见时难别亦难>> • 李商隐
+<<采莲曲>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.XrH.CaMYZBUPqZSUx7ou" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.2dAxpUxHCNu8iZ.__ZwW" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.RFV3sb8vtqIE_r66h2aG" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.3TnGB_hTIRZUNSUqEvpG" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.040r.B2rYqQD4lhnLB7L" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.1_P7Pws.yB3TU6viP2gK" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.VETXF2x9q120JGi2Vfpg" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.M5NFSXmFeQo4y1V1rjSs" height="400" width="400" />
 </p>
 
 ## 项目介绍
