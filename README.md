@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/9 04:15:34
+  最近一次生成时间: 2024/2/9 06:14:06
 </p>
 <p align="center">
-武帝宫中人去尽，年年春色为谁来。
+鱼书经岁绝，烛泪流残月。
 </p>
 <p align="center">
-<<登古邺城>> • 岑参
+<<菩萨蛮·秋闺>> • 徐灿
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.CBVpySp2dHe3q1eCG45P" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.kB36uCw3bWBfPvE9pMpY" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.krbZVDWpLi8jyqsBTZpP" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.98tHNMvdS1kpOP0aBZOu" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.Xc.WgvlmagsdxLp4SVLc" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.bUXxExD69aSW2TfNowC4" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.AXcnVdFIrpu48ZSR.jw6" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.IGLbqNusLB7DgYkZ12ba" height="400" width="400" />
 </p>
 
 ## 项目介绍
