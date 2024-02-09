@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/9 14:19:01
+  最近一次生成时间: 2024/2/9 18:15:36
 </p>
 <p align="center">
-长江如虹贯，蟠绕其下。
+西风乱叶溪桥树。秋在黄花羞涩处。
 </p>
 <p align="center">
-<<阅江楼记>> • 宋濂
+<<青玉案·被檄出郊题陈氏山居>> • 张榘
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.o6bvQqNmtXwuBi.fOEBd" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.0OOF6S7JoQ8nOMKfCyV6" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.l1mQDxuHpCKdYW0s9jCn" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.o0sxZkkz8QFipcwCgK6W" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4._MVzQSlY1.7e.okThmD8" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.MmDZ5zqr.gNPMrKAHEa8" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.qs2Q9LNbyKHRQKiuKzc4" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.LaNOGagdqIatXKOwJuMa" height="400" width="400" />
 </p>
 
 ## 项目介绍
