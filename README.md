@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/9 20:26:42
+  最近一次生成时间: 2024/2/9 22:14:09
 </p>
 <p align="center">
-云横秦岭家何在？雪拥蓝关马不前。
+父老得书知我在，小轩临水为君开。
 </p>
 <p align="center">
-<<左迁至蓝关示侄孙湘>> • 韩愈
+<<送贾讷倅眉>> • 苏轼
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.JYpAuq2U8YkvYRG65SII" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.UoUHBLGnbtuEAQvDjHv_" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.WUxwITyOO6TeT2ZxDIOh" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.qOZZnyEXzlDQmdZCghSW" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.t_eQiO7zcDAm2SozAQpy" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.gtE2CMTN.acU7IcVO2pn" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.obOYU3OUmsFvM8WdEWaf" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.yl8lChXLe9whvSrC3fU2" height="400" width="400" />
 </p>
 
 ## 项目介绍
