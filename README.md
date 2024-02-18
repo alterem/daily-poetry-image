@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/10 12:18:42
+  最近一次生成时间: 2024/2/18 11:30:00
 </p>
 <p align="center">
-初惊河汉落，半洒云天里。
+正是浴兰时节动。菖蒲酒美清尊共。
 </p>
 <p align="center">
-<<望庐山瀑布水二首>> • 李白
+<<渔家傲·五月榴花妖艳烘>> • 欧阳修
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.mKJuSK6F9at5zP7jA_dX" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.1JGGbg4vUYSgovTqcOVn" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.4TyvSUv5xdt_1EwX65kk" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.yaxoPgO2SuwmmAvlEfeA" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.y.7BO4r_pYIGxK31ss5R" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.qipaRfQOOF3WimZQ_aob" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.jURlNdY04VnHjQoqUwrq" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.CZSprkvD7JIXNb0viC.X" height="400" width="400" />
 </p>
 
 ## 项目介绍
