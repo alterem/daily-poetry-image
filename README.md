@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/19 02:18:37
+  最近一次生成时间: 2024/2/19 04:16:28
 </p>
 <p align="center">
-听元宵，往岁喧哗，歌也千家，舞也千家。
+岁岁金河复玉关，朝朝马策与刀环。
 </p>
 <p align="center">
-<<古蟾宫·元宵>> • 王磐
+<<征人怨 / 征怨>> • 柳中庸
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.FDgh7.R27B5EDGNG_PQe" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.nALDYTQBeJr4SpNUgI_N" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.dzKcj.K7sCS93VyWtCh2" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.8GW3ieIFtcH1NTnLwgjE" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.Tf0GT8oaHvEO_sE_eiR." height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.J8sB4OD5RuFHqsW9wBvO" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.Gs7MQ.mA_pm8f0HFiPtZ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.Js3VhYe_FmqW3E46AJI6" height="400" width="400" />
 </p>
 
 ## 项目介绍
