@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/20 04:17:08
+  最近一次生成时间: 2024/2/20 06:15:21
 </p>
 <p align="center">
-一轮秋影转金波。飞镜又重磨。
+少年易学老难成，一寸光阴不可轻。
 </p>
 <p align="center">
-<<太常引·建康中秋夜为吕叔潜赋>> • 辛弃疾
+<<偶成>> • 朱熹
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.F0ZANepNBN089Jltv9fu" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.hWL2fOwrtaLYJjRE81uf" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.pVJXkoMF54etSkT9kw9e" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.I4iaZECdQta2mPMI_Qof" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.LuEp8uBeRTQUxSQ68x7v" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.EBpz.CXvTXYwE6eSYwXd" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.O_4aWFvddADo_f1SjAH5" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.fJ9NYFVtw8TroUkmBILX" height="400" width="400" />
 </p>
 
 ## 项目介绍
