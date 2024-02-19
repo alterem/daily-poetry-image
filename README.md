@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/19 10:22:26
+  最近一次生成时间: 2024/2/19 12:18:03
 </p>
 <p align="center">
-落红不是无情物，化作春泥更护花。
+月既不解饮，影徒随我身。
 </p>
 <p align="center">
-<<己亥杂诗·其五>> • 龚自珍
+<<月下独酌四首·其一>> • 李白
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.xbXca0OMBG0rNokalJXY" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.Gh.z4e7wk0IUYaBAMiEt" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.O18LeGKbjpLIL5gD1AWK" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.48LaRBxQVlDk0g8gJNDS" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.yDcadcQDR06kZfqRBecv" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.K24OKtUGZk3K_JWr0Nxx" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.qDOFTk9wfzA2NsXs11Fi" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.AE9veMY54fUPaW3DbDqb" height="400" width="400" />
 </p>
 
 ## 项目介绍
