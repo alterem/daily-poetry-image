@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/20 00:23:33
+  最近一次生成时间: 2024/2/20 04:17:08
 </p>
 <p align="center">
-待到重阳日，还来就菊花。
+一轮秋影转金波。飞镜又重磨。
 </p>
 <p align="center">
-<<过故人庄>> • 孟浩然
+<<太常引·建康中秋夜为吕叔潜赋>> • 辛弃疾
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.zjEXjZctAa16kiJ8DhuB" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.bHyKaWosFNJswcIIc1rf" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.gCg_zS7lGkZzXPx6Jt2x" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.7YhpRdyJ.8M9hSfHVuX4" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.F0ZANepNBN089Jltv9fu" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.hWL2fOwrtaLYJjRE81uf" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.pVJXkoMF54etSkT9kw9e" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.I4iaZECdQta2mPMI_Qof" height="400" width="400" />
 </p>
 
 ## 项目介绍
