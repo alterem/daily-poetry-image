@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/21 04:17:45
+  最近一次生成时间: 2024/2/21 06:14:28
 </p>
 <p align="center">
-浊酒不销忧国泪，救时应仗出群才。
+松花酿酒，春水煎茶。
 </p>
 <p align="center">
-<<黄海舟中日人索句并见日俄战争地图>> • 秋瑾
+<<人月圆·山中书事>> • 张可久
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.pufgJoe7.XbprSJRhhDd" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.SUbMCPSPKfL5jFqUH9F3" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.NKOmt7Xxsd20F3xeR3KV" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.tvT0.8grvsUuEgpf3p17" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.dHK5QwW2xC9m2vPui9Gi" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.1oGaF4f9KmovuUPt4M3h" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.u4ZphW8BhASOAGvy40vK" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.WhGOHi9tyHprbftGidnS" height="400" width="400" />
 </p>
 
 ## 项目介绍
