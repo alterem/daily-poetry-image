@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/20 06:15:21
+  最近一次生成时间: 2024/2/20 09:04:06
 </p>
 <p align="center">
-少年易学老难成，一寸光阴不可轻。
+偶应非熊兆，尊为帝者师。
 </p>
 <p align="center">
-<<偶成>> • 朱熹
+<<题太公钓渭图>> • 刘基
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.LuEp8uBeRTQUxSQ68x7v" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.EBpz.CXvTXYwE6eSYwXd" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.O_4aWFvddADo_f1SjAH5" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.fJ9NYFVtw8TroUkmBILX" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.FZz1Zxqvspav0H2wTP9." height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.1mQZDbvk44mGTUCH3sU_" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.3xhfL06BQdEjTENpRcA3" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.47hgQOY5Stv8R8LsiYZY" height="400" width="400" />
 </p>
 
 ## 项目介绍
