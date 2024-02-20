@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/20 22:16:29
+  最近一次生成时间: 2024/2/21 00:22:01
 </p>
 <p align="center">
-天山雪后海风寒，横笛偏吹行路难。
+可怜九月初三夜，露似真珠月似弓。
 </p>
 <p align="center">
-<<从军北征>> • 李益
+<<暮江吟>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.LADPt0unNnnkyFOvnIqv" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.tUrSB8JkevSdD6UfsIWm" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.qFfNl23ykXNg7HE5hfI1" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3._qwqiBsRhJ.._Kjs0guM" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.JJQyjIKYyHN5HMsQvaH0" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.rJgOvoALonw5wSQUDk8s" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.sy6EAtBsMruS2YZVBSFq" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.MMM3JKbzPNfbYZqiWvTo" height="400" width="400" />
 </p>
 
 ## 项目介绍
