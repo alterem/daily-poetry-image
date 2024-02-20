@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/20 09:04:06
+  最近一次生成时间: 2024/2/20 10:19:48
 </p>
 <p align="center">
-偶应非熊兆，尊为帝者师。
+山桃红花满上头，蜀江春水拍山流。
 </p>
 <p align="center">
-<<题太公钓渭图>> • 刘基
+<<竹枝词·山桃红花满上头>> • 刘禹锡
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.FZz1Zxqvspav0H2wTP9." height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.1mQZDbvk44mGTUCH3sU_" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.3xhfL06BQdEjTENpRcA3" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.47hgQOY5Stv8R8LsiYZY" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.2MEtBqLN5Vb6rubfBq3t" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.zE5bsHa97qSwWDfTGtxb" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.TNd7fyFaU8z9XOnM2urf" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.7fxkheoBA3TM39mYNt9q" height="400" width="400" />
 </p>
 
 ## 项目介绍
