@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/22 02:19:56
+  最近一次生成时间: 2024/2/22 04:16:50
 </p>
 <p align="center">
-丹枫万叶碧云边，黄花千点幽岩下。
+对望中天地，洞然如刷。
 </p>
 <p align="center">
-<<踏莎行·秋入云山>> • 张抡
+<<满江红·中秋夜潮>> • 史达祖
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.7jw2gLNaAvGwlHO1tsed" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.VG9_ioLgZYL8MfghRc7d" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.CsU0aiIDq5.N6sSgLzgZ" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.HOu120MeXo7.WSvtDyZB" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.rxthPDgLPjei01KJvcro" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.e9YCVfljGVygvgIUkC57" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.SWOIQ492wUyNv4nV6JC9" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.v3i5Gjp.E2Ap5xVpPDFI" height="400" width="400" />
 </p>
 
 ## 项目介绍
