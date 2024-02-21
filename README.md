@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/22 00:20:52
+  最近一次生成时间: 2024/2/22 02:19:56
 </p>
 <p align="center">
-回廊四合掩寂寞，碧鹦鹉对红蔷薇。
+丹枫万叶碧云边，黄花千点幽岩下。
 </p>
 <p align="center">
-<<日射>> • 李商隐
+<<踏莎行·秋入云山>> • 张抡
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.xR5Rd7hEO3h2YEPM6KIp" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.u.RSPPzZ9A4A_B.K.5pU" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.7DgM0F6JB3F_eUBE1Ws9" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.HRXf_Mfw8GMHOWDtpfcS" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.7jw2gLNaAvGwlHO1tsed" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.VG9_ioLgZYL8MfghRc7d" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.CsU0aiIDq5.N6sSgLzgZ" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.HOu120MeXo7.WSvtDyZB" height="400" width="400" />
 </p>
 
 ## 项目介绍
