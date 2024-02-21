@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/22 04:16:50
+  最近一次生成时间: 2024/2/22 06:14:16
 </p>
 <p align="center">
-对望中天地，洞然如刷。
+今为羌笛出塞声，使我三军泪如雨。
 </p>
 <p align="center">
-<<满江红·中秋夜潮>> • 史达祖
+<<古意>> • 李颀
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.rxthPDgLPjei01KJvcro" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.e9YCVfljGVygvgIUkC57" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.SWOIQ492wUyNv4nV6JC9" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.v3i5Gjp.E2Ap5xVpPDFI" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.lIdkKM_7pqvB.V60Sj7V" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.vHkqt9Z5hhBwX3Z6GEV4" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.5dDRID4modr2FMbjzr0f" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.pU8fCaFZSiIYsbEKU5kP" height="400" width="400" />
 </p>
 
 ## 项目介绍
