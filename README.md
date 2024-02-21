@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/21 06:14:28
+  最近一次生成时间: 2024/2/21 09:05:17
 </p>
 <p align="center">
-松花酿酒，春水煎茶。
+海内存知己，天涯若比邻。
 </p>
 <p align="center">
-<<人月圆·山中书事>> • 张可久
+<<送杜少府之任蜀州 / 送杜少府之任蜀川>> • 王勃
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.dHK5QwW2xC9m2vPui9Gi" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.1oGaF4f9KmovuUPt4M3h" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.u4ZphW8BhASOAGvy40vK" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.WhGOHi9tyHprbftGidnS" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.R560mhdm7iPS.YpXaa6m" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.RrF0GrVXiTT2s5eRauiZ" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.0jkSk7QRJw.71Cmzsdoq" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.vcpvugAw6t3gX5xoWxHC" height="400" width="400" />
 </p>
 
 ## 项目介绍
