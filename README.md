@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/21 18:16:46
+  最近一次生成时间: 2024/2/21 20:28:01
 </p>
 <p align="center">
-乱离何处见，消息苦难真。
+世间珍果更无加，玉雪肌肤罩绛纱。
 </p>
 <p align="center">
-<<遇旧友>> • 吴伟业
+<<咏荔枝>> • 丘浚
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.bNEevt.DXiS0X7CAn1P1" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.lI7Wrc4iOj0Kc8gi9cKC" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.1p4epnwblpGLrIfmxVua" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.j6nZnNbRaMbcgO9kMkAE" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.kSEMSnnevVJQhWT70aKq" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.ZXlRpKY8TZ_DSScPM8Iu" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.9q_s5GuNLx.gTnsSSznl" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.Ii2reS1kRcNYXIt.3pCO" height="400" width="400" />
 </p>
 
 ## 项目介绍
