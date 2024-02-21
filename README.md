@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/21 10:20:21
+  最近一次生成时间: 2024/2/21 12:18:05
 </p>
 <p align="center">
-离别一何久，七度过中秋。
+朝辞白帝彩云间，千里江陵一日还。
 </p>
 <p align="center">
-<<水调歌头·徐州中秋>> • 苏辙
+<<早发白帝城 / 白帝下江陵>> • 李白
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.eTdZ7WBULEfqsI3ScH1r" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.2vGJB0kSVghPvMDW.twh" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.HVwd7WG1BoTVMPfbv4qg" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.P2IKa0NJCa.7cDUI1jRK" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.0fVQrO9MGD7x2qL6ckLV" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.LYGnxs9e7Y4AFomD4Sgz" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.FpPu8FH6o_FdpmUWyBZM" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.u5BOO5PZ2nCgsSzWWH9H" height="400" width="400" />
 </p>
 
 ## 项目介绍
