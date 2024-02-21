@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/21 14:19:17
+  最近一次生成时间: 2024/2/21 16:19:57
 </p>
 <p align="center">
-报答春光知有处，应须美酒送生涯。
+中山人予之猫，猫善捕鼠及鸡。
 </p>
 <p align="center">
-<<江畔独步寻花七绝句>> • 杜甫
+<<乞猫>> • 刘基
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.Fc6Sys9aCcQe5ER7gjNd" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.vnbgLO8LdzOlRlg8FeYZ" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.qIvpgdMrnQL9dY30uCs7" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.hemqYG8YX_grRqRO829c" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.ann07WK2XrI5K7Hc9KpE" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.PNd1taBbNcMAiHBnRQxu" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.6IAa08FEdep4r3hcLGMZ" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.teMn_OqbF29P.YNYJJf7" height="400" width="400" />
 </p>
 
 ## 项目介绍
