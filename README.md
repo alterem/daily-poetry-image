@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/22 20:27:27
+  最近一次生成时间: 2024/2/22 22:17:24
 </p>
 <p align="center">
-一骑红尘妃子笑，无人知是荔枝来。
+月去疏帘才数尺，乌鹊惊飞，一片伤心白。
 </p>
 <p align="center">
-<<过华清宫绝句三首>> • 杜牧
+<<蝶恋花·旅月怀人>> • 宋琬
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.r1CnErYbe2tSu0azNrv6" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.fxLbUiV3muN.uyf8DabT" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.rsdZDgPfCrTBuwWyZhsf" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.uEM_OgHEgPqjXO_736BQ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.IfGXmFUwWKZjD6td4irn" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.MficruMrjjfh5O_uBjTP" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.zfr3GswmAMYHJe2PPbHL" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.Y6Q0xg62apn4JXR.tncC" height="400" width="400" />
 </p>
 
 ## 项目介绍
