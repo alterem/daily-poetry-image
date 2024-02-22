@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/22 18:15:38
+  最近一次生成时间: 2024/2/22 20:27:27
 </p>
 <p align="center">
-湘江两岸花木深，美人不见愁人心。
+一骑红尘妃子笑，无人知是荔枝来。
 </p>
 <p align="center">
-<<有所思>> • 卢仝
+<<过华清宫绝句三首>> • 杜牧
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.vkuY5pbbK3sNKg_nKSBn" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.K1YsvysLosFQxDDJyA0M" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.KQGWjRNEaFnuLtoxiKi7" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.Dm4MfYGTh_l787oVWqEZ" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.r1CnErYbe2tSu0azNrv6" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.fxLbUiV3muN.uyf8DabT" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.rsdZDgPfCrTBuwWyZhsf" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.uEM_OgHEgPqjXO_736BQ" height="400" width="400" />
 </p>
 
 ## 项目介绍
