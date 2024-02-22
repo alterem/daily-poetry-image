@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/22 16:19:03
+  最近一次生成时间: 2024/2/22 18:15:38
 </p>
 <p align="center">
-娶妻无媒毋须恨，书中有女颜如玉。
+湘江两岸花木深，美人不见愁人心。
 </p>
 <p align="center">
-<<劝学诗>> • 赵恒
+<<有所思>> • 卢仝
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.mwCW7znpGx5nBIvWo4mV" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.N_TrMUVftObKUR_In35U" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.TGjZk0srGgFp1ick2oSY" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.wBJ4WrrdBTvo9tfZCE_k" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.vkuY5pbbK3sNKg_nKSBn" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.K1YsvysLosFQxDDJyA0M" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.KQGWjRNEaFnuLtoxiKi7" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.Dm4MfYGTh_l787oVWqEZ" height="400" width="400" />
 </p>
 
 ## 项目介绍
