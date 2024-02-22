@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/22 14:19:41
+  最近一次生成时间: 2024/2/22 16:19:03
 </p>
 <p align="center">
-待到重阳日，还来就菊花。
+娶妻无媒毋须恨，书中有女颜如玉。
 </p>
 <p align="center">
-<<过故人庄>> • 孟浩然
+<<劝学诗>> • 赵恒
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.xNM6VbaL86ZtpfiYnNW6" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.pGFLNUbJ7FhoBaqmX.pF" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.KxBTjl40yIvSg3iFQPAu" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.fDQu6ZKMA2JXPvJiszMf" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.mwCW7znpGx5nBIvWo4mV" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.N_TrMUVftObKUR_In35U" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.TGjZk0srGgFp1ick2oSY" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.wBJ4WrrdBTvo9tfZCE_k" height="400" width="400" />
 </p>
 
 ## 项目介绍
