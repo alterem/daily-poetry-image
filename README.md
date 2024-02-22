@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/23 04:16:14
+  最近一次生成时间: 2024/2/23 06:14:44
 </p>
 <p align="center">
-竹马踉蹡冲淖去，纸鸢跋扈挟风鸣。
+花落家童未扫，莺啼山客犹眠。
 </p>
 <p align="center">
-<<观村童戏溪上>> • 陆游
+<<田园乐七首·其六>> • 王维
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.IP0vz4JaA4N1.yMf815n" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.O8NGHzsqkPN.UrV7Cedx" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.uKqn419W2ZrlHHx6DtLm" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.irI0JqHRMVjn6rEABINE" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.kNBr0eSYb63RtyoTRb6H" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.OfWiPzxdVnRRGi3GElTm" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.V0WJnHVxqKom6ajVK7LO" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.nNZ4FU60Cp9uCTFgclxp" height="400" width="400" />
 </p>
 
 ## 项目介绍
