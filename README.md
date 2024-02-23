@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/24 04:17:30
+  最近一次生成时间: 2024/2/24 06:13:37
 </p>
 <p align="center">
-离堂思琴瑟，别路绕山川。
+醉后满身花影、倩人扶。
 </p>
 <p align="center">
-<<春夜别友人二首·其一>> • 陈子昂
+<<虞美人·疏梅月下歌金缕>> • 晏几道
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.5XziYtM8.Niq1OaIMzEl" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.mQ98pnBTTbkq0AzXpZfJ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.Q0xiQZxHfkzNGlglUyVy" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.SrmcZbJJbsxDLI8Q.OtW" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.sb0F7555bW_h2VkOlnpE" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.9G1ypah6B.k8Ts_5eMNA" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.RhKaOLw_Nj0IDASXh23p" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.fSITyXlJ55PXRpblGYwQ" height="400" width="400" />
 </p>
 
 ## 项目介绍
