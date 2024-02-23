@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/23 09:04:05
+  最近一次生成时间: 2024/2/23 10:20:39
 </p>
 <p align="center">
-不是暗尘明月，那时元夜。
+穿针人在合欢楼，正月露、玉盘高泻。
 </p>
 <p align="center">
-<<女冠子·元夕>> • 蒋捷
+<<鹊桥仙·碧梧初出>> • 严蕊
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.bbdaBM1pP5vM5ldFhiHM" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.179TQAX21xZp0FSr1pAR" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.vYM_Qx6HlY6xCl4pDMDn" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.vjeHBEs0z2LDn1RBWiEo" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.JGxCtwmSlmL14lm7guIq" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.4iXHsVgBElwsr9WLdXZP" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.m.UQntfaA_2PLSofku48" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.k8l2PvHw1OiZ.NMhNVDP" height="400" width="400" />
 </p>
 
 ## 项目介绍
