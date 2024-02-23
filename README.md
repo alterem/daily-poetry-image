@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/23 06:14:44
+  最近一次生成时间: 2024/2/23 09:04:05
 </p>
 <p align="center">
-花落家童未扫，莺啼山客犹眠。
+不是暗尘明月，那时元夜。
 </p>
 <p align="center">
-<<田园乐七首·其六>> • 王维
+<<女冠子·元夕>> • 蒋捷
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.kNBr0eSYb63RtyoTRb6H" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.OfWiPzxdVnRRGi3GElTm" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.V0WJnHVxqKom6ajVK7LO" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.nNZ4FU60Cp9uCTFgclxp" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.bbdaBM1pP5vM5ldFhiHM" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.179TQAX21xZp0FSr1pAR" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.vYM_Qx6HlY6xCl4pDMDn" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.vjeHBEs0z2LDn1RBWiEo" height="400" width="400" />
 </p>
 
 ## 项目介绍
