@@ -1,8 +1,6 @@
 
 # daily-poetry-image
 
-## 我爱古诗词
-
 ## 每天一句中国古诗词，生成 AI 图片 Powered by Bing DALL-E-3.
 
 ### 👉🏽 [Base On @liruifengv's daily-poetry-image](https://github.com/liruifengv/daily-poetry-image)
@@ -10,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/23 14:19:36
+  最近一次生成时间: 2024/2/23 16:18:43
 </p>
 <p align="center">
-竹叶于人既无分，菊花从此不须开。
+落花狼藉酒阑珊，笙歌醉梦间。
 </p>
 <p align="center">
-<<九日五首·其一>> • 杜甫
+<<阮郎归·呈郑王十二弟>> • 李煜
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.dgU.SzTFDx7s98dUPhZ3" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.Vts2OYp5tu1SdhkWrUSV" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.wtoKU.dNdZuNKjbenkw9" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.D0Mof.WGUUlul4oq18O0" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.i_3bB57nHFsD8hibONgJ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.7cZAo5j3QaJzVTWHcmJg" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.xk8ikM2xHT1BCR2g4jVn" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.63NMFYE9sM805ebxkPj0" height="400" width="400" />
 </p>
 
 ## 项目介绍
