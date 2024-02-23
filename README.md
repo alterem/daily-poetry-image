@@ -1,6 +1,8 @@
 
 # daily-poetry-image
 
+## 我爱古诗词
+
 ## 每天一句中国古诗词，生成 AI 图片 Powered by Bing DALL-E-3.
 
 ### 👉🏽 [Base On @liruifengv's daily-poetry-image](https://github.com/liruifengv/daily-poetry-image)
