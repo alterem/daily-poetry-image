@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/24 00:20:13
+  最近一次生成时间: 2024/2/24 02:20:38
 </p>
 <p align="center">
-雨足高田白，披蓑半夜耕。
+佳辰强饮食犹寒，隐几萧条戴鹖冠。
 </p>
 <p align="center">
-<<田上>> • 崔道融
+<<小寒食舟中作>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.ksDfWfY7qYyR9TnGVSEK" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.LQyEapJ0lSCCnP6k3pI7" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.cv1ycowmSViYXMUjOH5w" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.5Zzw5cK3GNzIwBhmNHAb" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.ilfaezb7zJWAiU8GdTlX" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.8kHPvAFOAxFjoSdD.s_n" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.zurfrUyaBX80yYdS2ikc" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.MinQ.9u81mVBd1RLnfbt" height="400" width="400" />
 </p>
 
 ## 项目介绍
