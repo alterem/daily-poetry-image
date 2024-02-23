@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/24 02:20:38
+  最近一次生成时间: 2024/2/24 04:17:30
 </p>
 <p align="center">
-佳辰强饮食犹寒，隐几萧条戴鹖冠。
+离堂思琴瑟，别路绕山川。
 </p>
 <p align="center">
-<<小寒食舟中作>> • 杜甫
+<<春夜别友人二首·其一>> • 陈子昂
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.ilfaezb7zJWAiU8GdTlX" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.8kHPvAFOAxFjoSdD.s_n" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.zurfrUyaBX80yYdS2ikc" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.MinQ.9u81mVBd1RLnfbt" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.5XziYtM8.Niq1OaIMzEl" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.mQ98pnBTTbkq0AzXpZfJ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.Q0xiQZxHfkzNGlglUyVy" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.SrmcZbJJbsxDLI8Q.OtW" height="400" width="400" />
 </p>
 
 ## 项目介绍
