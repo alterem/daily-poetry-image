@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/24 06:13:37
+  最近一次生成时间: 2024/2/24 09:02:01
 </p>
 <p align="center">
-醉后满身花影、倩人扶。
+锄禾日当午，汗滴禾下土。
 </p>
 <p align="center">
-<<虞美人·疏梅月下歌金缕>> • 晏几道
+<<古风二首 / 悯农二首>> • 李绅
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.sb0F7555bW_h2VkOlnpE" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.9G1ypah6B.k8Ts_5eMNA" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.RhKaOLw_Nj0IDASXh23p" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.fSITyXlJ55PXRpblGYwQ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.CC0euZhXDvq31JUZHv4Q" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.xciIjv1tCjir.jiVy7kA" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.3a_.OVtxTM4KaR1v.Rgw" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.GzjVZXEmEwsPnomPOthf" height="400" width="400" />
 </p>
 
 ## 项目介绍
