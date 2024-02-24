@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/24 09:02:01
+  最近一次生成时间: 2024/2/24 10:17:41
 </p>
 <p align="center">
-锄禾日当午，汗滴禾下土。
+登舟望秋月，空忆谢将军。
 </p>
 <p align="center">
-<<古风二首 / 悯农二首>> • 李绅
+<<夜泊牛渚怀古>> • 李白
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.CC0euZhXDvq31JUZHv4Q" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.xciIjv1tCjir.jiVy7kA" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.3a_.OVtxTM4KaR1v.Rgw" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.GzjVZXEmEwsPnomPOthf" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.hDLNvJp6PHeGGe2XlLjH" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.zsxr2B67nxRp.IJUvcu1" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.5Mq8cQuQOj6u1ud_lQ4k" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.gD1KhxYDvtZ2INUpbvBz" height="400" width="400" />
 </p>
 
 ## 项目介绍
