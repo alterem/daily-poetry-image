@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/24 18:16:48
+  最近一次生成时间: 2024/2/24 20:24:55
 </p>
 <p align="center">
-苟利国家生死以，岂因祸福避趋之！
+投策命晨装，暂与园田疏。
 </p>
 <p align="center">
-<<赴戍登程口占示家人·其二>> • 林则徐
+<<始作镇军参军经曲阿作>> • 陶渊明
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.ehSBK6qpTfuifI5L81HL" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.mCpPplSaA9LXTz_qqmPX" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.XDmz7YjOyOuawINwm2Ky" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.CVewOMTot8xnH9lmSQPD" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.ypaBRwcm_6CkoXnlaQAB" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.KKwjjwr6E0Gsd90a7z74" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.rm7p4457TjTge4lRKU1g" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.VYfcIbQLD5WWRTDw7o3G" height="400" width="400" />
 </p>
 
 ## 项目介绍
