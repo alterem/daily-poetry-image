@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/25 00:18:09
+  最近一次生成时间: 2024/2/25 04:14:28
 </p>
 <p align="center">
-田田初出水，菡萏念娇蕊。
+长因送人处，忆得别家时。
 </p>
 <p align="center">
-<<菩萨蛮·题画>> • 龚翔麟
+<<蓟北旅思 / 送远人>> • 张籍
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4..t4UeakPvv33fgYKMbCH" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.H4uIiKA7dD6tMCoh3gpM" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.buUQm2XPc65McWNujIt5" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.tDrQN8E45x.rWCWgWnFl" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.ZrzIA03TiIyXM1WMQuDJ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.zxrfb0lQfO0bG5uz74iD" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.XxqhQuhCxudd2q0_QSep" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.DiZd1osj6XV7XlEvhp7e" height="400" width="400" />
 </p>
 
 ## 项目介绍
