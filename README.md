@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/24 22:12:32
+  最近一次生成时间: 2024/2/25 00:18:09
 </p>
 <p align="center">
-谁念迁客归来，老大伤名节。
+田田初出水，菡萏念娇蕊。
 </p>
 <p align="center">
-<<六么令·次韵和贺方回金陵怀古鄱阳席上作>> • 李纲
+<<菩萨蛮·题画>> • 龚翔麟
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.nbd1ZRrO.54hfWVtPOr4" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.RYKZFtTzocVk7.OcAewP" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.s7UyBn01acYAxzg.Skbt" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.us7LN8SgrnIfL9YaoxGN" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4..t4UeakPvv33fgYKMbCH" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.H4uIiKA7dD6tMCoh3gpM" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.buUQm2XPc65McWNujIt5" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.tDrQN8E45x.rWCWgWnFl" height="400" width="400" />
 </p>
 
 ## 项目介绍
