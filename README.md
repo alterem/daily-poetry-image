@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/25 09:08:43
+  最近一次生成时间: 2024/2/25 10:22:39
 </p>
 <p align="center">
-此夜星繁河正白，人传织女牵牛客。
+芳洲拾翠暮忘归，秀野踏青来不定。
 </p>
 <p align="center">
-<<七夕曝衣篇>> • 沈佺期
+<<木兰花·乙卯吴兴寒食>> • 张先
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.1wKLeZZP_jaTis_qPpzw" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.JQ2wWogq8j72eKEvdn2B" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.UdCeloqjS7XA_s6oyVts" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.yHwA9i3oq8h1VQJ3AL04" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.Yo9nRoloNrfusZpKJRzu" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.6yxDsU8Ez7cqwgzRjej5" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.pVJ6FuLSX0DXj8KqbK9z" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.hdxRYJiUOGn6PWO8MZpy" height="400" width="400" />
 </p>
 
 ## 项目介绍
