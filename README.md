@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/25 16:16:52
+  最近一次生成时间: 2024/2/25 18:14:19
 </p>
 <p align="center">
-春悄悄，夜迢迢。碧云天共楚宫遥。
+造化钟神秀，阴阳割昏晓。
 </p>
 <p align="center">
-<<鹧鸪天·小令尊前见玉箫>> • 晏几道
+<<望岳>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.AdvTVXFHjq4yLxL0en4_" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.G8Sie6eKKT8.2tzpZqSH" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.2fbkDXEjk.DicMNiUcPE" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.oF0QxHH8dOG9IFmmb3zx" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.n.EA7tmfJrQiS2Kz68WK" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.3Q59G8ovQrDzBB1X3ZE." height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.g26YdFNb5e60Z_xwTGuY" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.03xnIT4.EXx68KJt.RGB" height="400" width="400" />
 </p>
 
 ## 项目介绍
