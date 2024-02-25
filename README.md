@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/26 04:15:10
+  最近一次生成时间: 2024/2/26 06:15:02
 </p>
 <p align="center">
-香炉瀑布遥相望，回崖沓嶂凌苍苍。
+车遥遥兮马洋洋，追思君兮不可忘。
 </p>
 <p align="center">
-<<庐山谣寄卢侍御虚舟>> • 李白
+<<车遥遥篇>> • 傅玄
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.P_bPzlfeZA3IbYdbvIXh" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.UOMqq6pBHSeGFqfl_tti" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.k6ZeJjvRFKNhuvOJyeed" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.EfSsT2hRrkHPbceTkQlg" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.EFoCCrCyhy620In4FM88" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.BLC_eOJ5jRjQCaG9avVL" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.ySpHTWob19hoVyI9goC6" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.GQLrb0gXOhCWeEMOkM8S" height="400" width="400" />
 </p>
 
 ## 项目介绍
