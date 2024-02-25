@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/26 02:19:07
+  最近一次生成时间: 2024/2/26 04:15:10
 </p>
 <p align="center">
-两情若是久长时，又岂在朝朝暮暮。
+香炉瀑布遥相望，回崖沓嶂凌苍苍。
 </p>
 <p align="center">
-<<鹊桥仙·纤云弄巧>> • 秦观
+<<庐山谣寄卢侍御虚舟>> • 李白
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.O_ZXKC736l8sGeFCvZWv" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.xw9Qk2x1rO2PBtYuMzBR" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.XLbHsCNU91gQf6XjEDOr" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.Yjp64seluyvYUL5SYBJ3" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.P_bPzlfeZA3IbYdbvIXh" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.UOMqq6pBHSeGFqfl_tti" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.k6ZeJjvRFKNhuvOJyeed" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.EfSsT2hRrkHPbceTkQlg" height="400" width="400" />
 </p>
 
 ## 项目介绍
