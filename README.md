@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/25 06:13:51
+  最近一次生成时间: 2024/2/25 09:08:43
 </p>
 <p align="center">
-勤苦守恒业，始有数月粮。
+此夜星繁河正白，人传织女牵牛客。
 </p>
 <p align="center">
-<<秋日田家杂咏>> • 黄燮清
+<<七夕曝衣篇>> • 沈佺期
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.U4eet2JHqvAnHGvTGAvh" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.w6rKbIKQ93_4OPt2SXEj" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.PLLLtffZrL1j_1jj3p87" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.mh1QPUuV3yhQp3aQ7J1z" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.1wKLeZZP_jaTis_qPpzw" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.JQ2wWogq8j72eKEvdn2B" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.UdCeloqjS7XA_s6oyVts" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.yHwA9i3oq8h1VQJ3AL04" height="400" width="400" />
 </p>
 
 ## 项目介绍
