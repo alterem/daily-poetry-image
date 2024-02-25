@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/25 22:13:21
+  最近一次生成时间: 2024/2/26 00:19:48
 </p>
 <p align="center">
-不知江月待何人，但见长江送流水。
+蜃散云收破楼阁，虹残水照断桥粱。
 </p>
 <p align="center">
-<<春江花月夜>> • 张若虚
+<<江楼晚眺景物鲜奇吟玩成篇寄水部张员外>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.6qkjQm6HhtOLZaMyPAiU" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.JOWhQsGqGAqmXwP6pCqH" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.aoV1tBczA7AHnYQc7PBP" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.Df1ggIJr9vd26RaAEwji" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.nKSU_aZTrH3KChXLIUfq" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.ja8D0m9ZmkOzZcUOY5bB" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.HQ6Xk.2qMyyigcv6ZSxw" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.rwqkM1wc.k5nLXfzo2Q2" height="400" width="400" />
 </p>
 
 ## 项目介绍
