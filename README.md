@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/25 12:19:02
+  最近一次生成时间: 2024/2/25 14:18:01
 </p>
 <p align="center">
-九州生气恃风雷，万马齐喑究可哀。
+枫落河梁野水秋。淡烟衰草接郊丘。
 </p>
 <p align="center">
-<<己亥杂诗·其二百二十>> • 龚自珍
+<<鹧鸪天·枫落河梁野水秋>> • 苏庠
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.E8wU3Krolp9hNPGI1cv0" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.iCA0247wXwld0Qey16p_" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.gFjNELbMENgjvuVx8ZQk" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.VpHuUs80QO6vcfqIDWri" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.qcDW7KokwsW_pD11uC2Y" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.gpmGTXSlxlLD4kW_lsIc" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.oBjvbb3ypqkkIkhU8V9x" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.zi_o2gcfGtU.ep0FNveJ" height="400" width="400" />
 </p>
 
 ## 项目介绍
