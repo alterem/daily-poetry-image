@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/26 14:20:19
+  最近一次生成时间: 2024/2/26 16:19:01
 </p>
 <p align="center">
-未成林，难望凤来栖，聊医俗。
+摇落深知宋玉悲，风流儒雅亦吾师。
 </p>
 <p align="center">
-<<满江红·咏竹>> • 陆容
+<<咏怀古迹五首·其二>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.EzP6K5SuDZ1fSO6HgCc1" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.yTVSIfVCVgY5pvQd6bAW" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.Bt2Em58qbaUZUvkcizZ5" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.Hj_LHYGhO.6.MSqIdrqb" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.qbZlyBFpw_4ElU1yNTAH" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4..c_OK0rRqpf.ocmAhlMR" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4._ZKVgWigjpm4sWQsJyca" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.hUpdMHbsifdWGrdf2s.T" height="400" width="400" />
 </p>
 
 ## 项目介绍
