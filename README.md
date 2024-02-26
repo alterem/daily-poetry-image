@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/26 12:17:50
+  最近一次生成时间: 2024/2/26 14:20:19
 </p>
 <p align="center">
-商女不知亡国恨，隔江犹唱后庭花。
+未成林，难望凤来栖，聊医俗。
 </p>
 <p align="center">
-<<泊秦淮>> • 杜牧
+<<满江红·咏竹>> • 陆容
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.UIlz8QFUpQBOxgGSpJNk" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.p4nbKxA.P1JA..71a1Y." height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.tmlLjs.LND_RyeLz1zWJ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.sUjSSitkDlP2_sVzThaM" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.EzP6K5SuDZ1fSO6HgCc1" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.yTVSIfVCVgY5pvQd6bAW" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.Bt2Em58qbaUZUvkcizZ5" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.Hj_LHYGhO.6.MSqIdrqb" height="400" width="400" />
 </p>
 
 ## 项目介绍
