@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/26 16:19:01
+  最近一次生成时间: 2024/2/26 18:16:49
 </p>
 <p align="center">
-摇落深知宋玉悲，风流儒雅亦吾师。
+独立寒秋，湘江北去，橘子洲头。
 </p>
 <p align="center">
-<<咏怀古迹五首·其二>> • 杜甫
+<<沁园春·长沙>> • 毛泽东
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.qbZlyBFpw_4ElU1yNTAH" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4..c_OK0rRqpf.ocmAhlMR" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4._ZKVgWigjpm4sWQsJyca" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.hUpdMHbsifdWGrdf2s.T" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.TucGk0U522K6Iumy5OG8" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.j6b4hp8_tQsu0HTRk24w" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.LEnKsQLRYsAGRFVJWzc_" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.T1z4rMPcAdLdlVBVOo2_" height="400" width="400" />
 </p>
 
 ## 项目介绍
