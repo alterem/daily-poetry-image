@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/26 18:16:49
+  最近一次生成时间: 2024/2/26 20:27:25
 </p>
 <p align="center">
-独立寒秋，湘江北去，橘子洲头。
+夜阑卧听风吹雨，铁马冰河入梦来。
 </p>
 <p align="center">
-<<沁园春·长沙>> • 毛泽东
+<<十一月四日风雨大作>> • 陆游
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.TucGk0U522K6Iumy5OG8" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.j6b4hp8_tQsu0HTRk24w" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.LEnKsQLRYsAGRFVJWzc_" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.T1z4rMPcAdLdlVBVOo2_" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.sF5a91s82yajrhKEjxAS" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.qGEXpkvJFS9XcoC8pbcw" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.6I6trA3bsDVK8gNLNEsG" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.XeFNqCvEx2MAjQWSF9D1" height="400" width="400" />
 </p>
 
 ## 项目介绍
