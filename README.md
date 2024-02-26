@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/26 20:27:25
+  最近一次生成时间: 2024/2/26 22:16:53
 </p>
 <p align="center">
-夜阑卧听风吹雨，铁马冰河入梦来。
+画船撑入花深处，香泛金卮。
 </p>
 <p align="center">
-<<十一月四日风雨大作>> • 陆游
+<<采桑子·荷花开后西湖好>> • 欧阳修
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.sF5a91s82yajrhKEjxAS" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.qGEXpkvJFS9XcoC8pbcw" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.6I6trA3bsDVK8gNLNEsG" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.XeFNqCvEx2MAjQWSF9D1" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.JKHN1P3cbzpg8PKl5y8Z" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.dvqREQs1JsOFXSguqSAC" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.6fMCgeaCcx0JRmhRR8qu" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.yfX7VZRQXIZGqQ7DO5mS" height="400" width="400" />
 </p>
 
 ## 项目介绍
