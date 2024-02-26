@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/26 06:15:02
+  最近一次生成时间: 2024/2/26 09:06:30
 </p>
 <p align="center">
-车遥遥兮马洋洋，追思君兮不可忘。
+奇文共欣赏，疑义相与析。
 </p>
 <p align="center">
-<<车遥遥篇>> • 傅玄
+<<移居二首>> • 陶渊明
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.EFoCCrCyhy620In4FM88" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.BLC_eOJ5jRjQCaG9avVL" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.ySpHTWob19hoVyI9goC6" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.GQLrb0gXOhCWeEMOkM8S" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.wl7229.krLvZVYqU1kGa" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.9gmJRtdHe.Qm.g3IYeVo" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.ZNShbVIuUMIZj.Ey0M49" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.RPwe.evE1Lc_67f5ZAX4" height="400" width="400" />
 </p>
 
 ## 项目介绍
