@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/26 09:06:30
+  最近一次生成时间: 2024/2/26 10:23:49
 </p>
 <p align="center">
-奇文共欣赏，疑义相与析。
+感君缠绵意，系在红罗襦。
 </p>
 <p align="center">
-<<移居二首>> • 陶渊明
+<<节妇吟·寄东平李司空师道>> • 张籍
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.wl7229.krLvZVYqU1kGa" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.9gmJRtdHe.Qm.g3IYeVo" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.ZNShbVIuUMIZj.Ey0M49" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.RPwe.evE1Lc_67f5ZAX4" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.hqrz1syzZGZ33X9JIvgj" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.kEKAfvIqW76PzUbpGTg1" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.RFqix5EWstI.qny5hAad" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.BxgR9e7lqU87M0e7QZDJ" height="400" width="400" />
 </p>
 
 ## 项目介绍
