@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/28 04:16:32
+  最近一次生成时间: 2024/2/28 06:16:05
 </p>
 <p align="center">
-墙角数枝梅，凌寒独自开。
+已见寒梅发，复闻啼鸟声。
 </p>
 <p align="center">
-<<梅花 / 梅>> • 王安石
+<<杂诗三首 / 杂咏三首>> • 王维
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.Rl_gI81kU9O5eBTHwyeo" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.zOWKk4kCmSQtmc3iFCMQ" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.SzMXULfeojkghhXKBrms" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.H7AKIP5AdXaHOsVpCE94" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.u8gRgjWs12TgZ207_0ou" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.1jLWp1EoSyzJffuRUlAx" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.e6XN3R5jf2WgP79G4CWt" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.54CSUEo3oKBSP69AqEIC" height="400" width="400" />
 </p>
 
 ## 项目介绍
