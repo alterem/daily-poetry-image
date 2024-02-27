@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/27 10:19:12
+  最近一次生成时间: 2024/2/27 12:18:05
 </p>
 <p align="center">
-云物不殊乡国异，教儿且覆掌中杯。
+愿得此身长报国，何须生入玉门关。
 </p>
 <p align="center">
-<<小至>> • 杜甫
+<<塞上曲二首·其二>> • 戴叔伦
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.8LFf6fVzWchtuVio.clW" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.6uUc1O7oEHPnQugXtYRu" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.BOlHRh6H0sx944B11Dzv" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.KpmyvKwSf3I3ZgLpK3uN" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.HRvsNTFXofIa2kQhcjHH" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.H6afD8nkt4JjKuJL4ALb" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.EEa.y4LDVRtUW3jbveUH" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.20SmfvHg7Wtnh0Ez2Sb_" height="400" width="400" />
 </p>
 
 ## 项目介绍
