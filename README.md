@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/27 16:18:08
+  最近一次生成时间: 2024/2/27 18:16:57
 </p>
 <p align="center">
-十五彩衣年，承欢慈母前。
+胸中有誓深于海，肯使神州竟陆沉？
 </p>
 <p align="center">
-<<送张参明经举兼向泾州觐省>> • 孟浩然
+<<二砺>> • 郑思肖
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.kJ70LhvUxCGqJzAOzHO4" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.epyE2gveJ6.oDV_xDZ6z" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.DrWKGJef9LxU6HGB6A14" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.QzUbvqq7iKSrQdkF_OMI" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.mosLqq_PHFAp9IVfkXlH" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.O4XnQFzHNMO_qmcK1_x2" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.n0Ruim0.mpa6TetbLQ.T" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.t9_VVhEDdAa.Y7SHw5Rg" height="400" width="400" />
 </p>
 
 ## 项目介绍
