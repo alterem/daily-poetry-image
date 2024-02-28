@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/28 18:17:32
+  最近一次生成时间: 2024/2/28 20:26:49
 </p>
 <p align="center">
-鹅鸭不知春去尽，争随流水趁桃花。
+虚空落泉千仞直，雷奔入江不暂息。
 </p>
 <p align="center">
-<<春日·阴阴溪曲绿交加>> • 晁冲之
+<<庐山瀑布>> • 徐凝
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.hqfiMKyVwhsgWCoT15u3" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.E_czoHm1idNGRep.akO5" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.hL8zR2D4wcA679bd3JbQ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.77zA9doH9c.YxD6oS48H" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.sGyzFxBdVuq9jdXptpUy" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.FMI0TTGZtk2UPaTFxIli" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.Ac8sT.y.yXYsgJ.vgfa_" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.pR3h5dIQi8ODWUzJ9jNg" height="400" width="400" />
 </p>
 
 ## 项目介绍
