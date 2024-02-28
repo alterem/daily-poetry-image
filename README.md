@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/29 04:17:33
+  最近一次生成时间: 2024/2/29 06:14:12
 </p>
 <p align="center">
-想见广寒宫殿，正云梳风掠。
+西登香炉峰，南见瀑布水。
 </p>
 <p align="center">
-<<好事近·中秋席上和王路钤>> • 辛弃疾
+<<望庐山瀑布水二首>> • 李白
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.dqbr.evpWKo03tWjf9tZ" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.agklhOEa5rQZBaDkQDQX" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.B2ex8jaLGiphi8TrZ.2c" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.RmRtpe11yY3s9RJo2Vmb" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.V_G34MO4QfzuzwPYKFGo" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.cwS06JwF843.ev2KUa3V" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.GQ9Pp.3qK3zkpZ8F3gCv" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.fpvl_nYbYGrBAdPXzhLt" height="400" width="400" />
 </p>
 
 ## 项目介绍
