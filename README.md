@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/28 06:16:05
+  最近一次生成时间: 2024/2/28 09:03:34
 </p>
 <p align="center">
-已见寒梅发，复闻啼鸟声。
+新寒中酒敲窗雨，残香细袅秋情绪。
 </p>
 <p align="center">
-<<杂诗三首 / 杂咏三首>> • 王维
+<<菩萨蛮·新寒中酒敲窗雨>> • 纳兰性德
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.u8gRgjWs12TgZ207_0ou" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.1jLWp1EoSyzJffuRUlAx" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.e6XN3R5jf2WgP79G4CWt" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.54CSUEo3oKBSP69AqEIC" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.XnPVkd5qyS4U3Wmc_Aus" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.aEoUa_XIbbUZayZHL7WW" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.o0QPe4SP6o.WHNHMn20W" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.RmypfGIelU1HsqFRsA_m" height="400" width="400" />
 </p>
 
 ## 项目介绍
