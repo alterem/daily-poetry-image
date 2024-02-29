@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/1 02:20:57
+  最近一次生成时间: 2024/3/1 04:17:50
 </p>
 <p align="center">
-公乎跃马扬玉鞭，灭没高蹄日千里。
+未能抛得杭州去，一半勾留是此湖。
 </p>
 <p align="center">
-<<拂舞词 / 公无渡河>> • 温庭筠
+<<春题湖上>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.zRwmYVJgcruXWOQRWTRB" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.d2Ds7.Uuhl_bwtZnE7rn" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.O6Xbz5_E9ha7xpJW6jLD" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.OYZ1zG.zxBQjSSlJCRw2" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.wKSaTcnQfc7yl7DoJ4GH" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.WyHQBkniI59y0qyI01MC" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.uh6mMxJrPb7z7dm6.VK3" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.qBDWlJ6Gg5XfPk2pQV7n" height="400" width="400" />
 </p>
 
 ## 项目介绍
