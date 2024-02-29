@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/29 16:18:06
+  最近一次生成时间: 2024/2/29 18:18:00
 </p>
 <p align="center">
-人面不知何处去，桃花依旧笑春风。
+徘徊将何见？忧思独伤心。
 </p>
 <p align="center">
-<<题都城南庄>> • 崔护
+<<咏怀八十二首·其一>> • 阮籍
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.E_coe9NpzF_29m_VtruQ" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.n9MPyEEubLlfyNv98hU6" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.1Jjq4meQB0HBRZVoIhXl" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.e3MTYQ8UPAD2TyfC7lxL" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.QfsFa9bLVzWfzToXXZfV" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.gvEDEnAQwmX9LTCe09rd" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.FyV6hCsDzHyGqwCSEalV" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.i0pDaD0RZK7cBeOcSNf4" height="400" width="400" />
 </p>
 
 ## 项目介绍
