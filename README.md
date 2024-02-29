@@ -8,19 +8,17 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/1 04:17:50
+  最近一次生成时间: 2024/3/1 06:14:02
 </p>
 <p align="center">
-未能抛得杭州去，一半勾留是此湖。
+天长地久有时尽，此恨绵绵无绝期。
 </p>
 <p align="center">
-<<春题湖上>> • 白居易
+<<长恨歌>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.wKSaTcnQfc7yl7DoJ4GH" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.WyHQBkniI59y0qyI01MC" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.uh6mMxJrPb7z7dm6.VK3" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.qBDWlJ6Gg5XfPk2pQV7n" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.pRlWfpc4i0FfMnu878bA" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.NaKZf15LLp_mDcPF9qft" height="400" width="400" />
 </p>
 
 ## 项目介绍
