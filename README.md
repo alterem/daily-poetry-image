@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/29 06:14:12
+  最近一次生成时间: 2024/2/29 09:03:50
 </p>
 <p align="center">
-西登香炉峰，南见瀑布水。
+小轩独坐相思处，情绪好无聊。
 </p>
 <p align="center">
-<<望庐山瀑布水二首>> • 李白
+<<眼儿媚·愁云淡淡雨潇潇>> • 石孝友
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.V_G34MO4QfzuzwPYKFGo" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.cwS06JwF843.ev2KUa3V" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.GQ9Pp.3qK3zkpZ8F3gCv" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.fpvl_nYbYGrBAdPXzhLt" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.KzkkiqPA8TwwmOiBxKC_" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.XfKQd1KLHKQffInTEQvb" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.M3jUVy9gTw4MB6o8rcG3" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.KkML8vKcFHCHcKr1Vcfu" height="400" width="400" />
 </p>
 
 ## 项目介绍
