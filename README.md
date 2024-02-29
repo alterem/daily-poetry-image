@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/2/29 09:03:50
+  最近一次生成时间: 2024/2/29 10:19:25
 </p>
 <p align="center">
-小轩独坐相思处，情绪好无聊。
+旌旆夹两山，黄河当中流。
 </p>
 <p align="center">
-<<眼儿媚·愁云淡淡雨潇潇>> • 石孝友
+<<经乱离后天恩流夜郎忆旧游书怀赠江夏韦太守良宰>> • 李白
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.KzkkiqPA8TwwmOiBxKC_" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.XfKQd1KLHKQffInTEQvb" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.M3jUVy9gTw4MB6o8rcG3" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.KkML8vKcFHCHcKr1Vcfu" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.LLFtK4Ex9vW6b18Zfa3h" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.T6mVIQXBa9foPds7DIhC" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.1dA9xds.fAt.0t24Cibj" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.FVKQ1IjrKZUXZTVjxaDv" height="400" width="400" />
 </p>
 
 ## 项目介绍
