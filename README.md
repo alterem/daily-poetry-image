@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/1 22:14:41
+  最近一次生成时间: 2024/3/2 00:19:05
 </p>
 <p align="center">
-岂知民力艰，颗米皆琳琅。
+天阶夜色凉如水，卧看牵牛织女星。
 </p>
 <p align="center">
-<<秋日田家杂咏>> • 黄燮清
+<<秋夕>> • 杜牧
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.29yYijjU.zMVjHno3TU2" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.sQVusZ_dJAcBWzvhIMXG" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.PhjvWBxEXS3iRHTsecA6" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.9WycVhx0iGDRfdjuSpmf" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.0tqVcyiG4VjxzZVGRQde" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.VRuGOE_UZhCB8jtbs.yi" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.azKZoxxy_7ivsY0gObro" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.sRXMxZKT5eOY3MTg6Ry5" height="400" width="400" />
 </p>
 
 ## 项目介绍
