@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/2 00:19:05
+  最近一次生成时间: 2024/3/2 02:21:18
 </p>
 <p align="center">
-天阶夜色凉如水，卧看牵牛织女星。
+雌雄空中鸣，声尽呼不归。
 </p>
 <p align="center">
-<<秋夕>> • 杜牧
+<<燕诗示刘叟>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.0tqVcyiG4VjxzZVGRQde" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.VRuGOE_UZhCB8jtbs.yi" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.azKZoxxy_7ivsY0gObro" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.sRXMxZKT5eOY3MTg6Ry5" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.lCs2_9e6DP6zCpo3dl8r" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.UpI5VI5qep6slwV0k2Sh" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.97oRQvoVKopj0Pzhu3IC" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.KTxINCVHWwA3XO0wx120" height="400" width="400" />
 </p>
 
 ## 项目介绍
