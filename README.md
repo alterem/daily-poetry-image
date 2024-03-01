@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/1 12:19:10
+  最近一次生成时间: 2024/3/1 14:19:52
 </p>
 <p align="center">
-时人不识凌云木，直待凌云始道高。
+数萼初含雪，孤标画本难。
 </p>
 <p align="center">
-<<小松>> • 杜荀鹤
+<<梅花>> • 崔道融
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.zdjyE.cL7W8SRQ717zY2" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.4zkEQBcmUdbx0toYRJs8" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.u9tSv9LGGLXsjr2WpzOy" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.4FjnjJFtH7eYcSW7heop" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.3kByuUVbCE52TP_MMTto" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.BOZe.82uXOhQwuRZ.c8r" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.bkekcSWXMIpiWYhkJZ2q" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.SIyqDO8Le.d4s7n7_JYU" height="400" width="400" />
 </p>
 
 ## 项目介绍
