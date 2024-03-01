@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/1 16:18:43
+  最近一次生成时间: 2024/3/1 18:15:51
 </p>
 <p align="center">
-会当凌绝顶，一览众山小。
+是无猫邪，是不会蓄猫也。
 </p>
 <p align="center">
-<<望岳>> • 杜甫
+<<世无良猫>> • 乐钧
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.obC18NvWA3JyJAvjrGfZ" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.3Vd9eVQp6GUWNcHZMpFw" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.1Mh2Ej.I9YhUGFpDkZPa" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.f0sFGuAdeygQ8RVAiYHh" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.L_84V3virREbalWmxk_V" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.vVz7xu4KOgNR6Z35pYCO" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.f8Qp9hmnoTpeGhVYiYZq" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.2wlAt3c4ueKDmFnqNVlt" height="400" width="400" />
 </p>
 
 ## 项目介绍
