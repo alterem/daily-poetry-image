@@ -8,17 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/1 06:14:02
+  最近一次生成时间: 2024/3/1 09:10:18
 </p>
 <p align="center">
-天长地久有时尽，此恨绵绵无绝期。
+我欲穿花寻路，直入白云深处，浩气展虹霓。
 </p>
 <p align="center">
-<<长恨歌>> • 白居易
+<<水调歌头·游览>> • 黄庭坚
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.pRlWfpc4i0FfMnu878bA" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.NaKZf15LLp_mDcPF9qft" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.zFrk79bqSlkL9ctoelNl" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.NV8c4yAWRfNbbOqKC0oX" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.On3nGj3gd5krGf2IIBll" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.Lj27ZH8JSXXxF04ypUeo" height="400" width="400" />
 </p>
 
 ## 项目介绍
