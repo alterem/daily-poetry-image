@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/2 06:13:55
+  最近一次生成时间: 2024/3/2 09:02:51
 </p>
 <p align="center">
-山重水复疑无路，柳暗花明又一村。
+幽径无人独自芳，此恨凭谁诉。
 </p>
 <p align="center">
-<<游山西村>> • 陆游
+<<卜算子·兰>> • 曹组
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.p069y7x5nz50X4PSIdpx" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.zLanjW4eH57cfC7Xc.bE" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.x1W4Rs60DWVt0OU1FYwE" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.xicUoJkWPLxM2eGZvhgY" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.i1802huZErPTd.QcpP23" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.xZ0QpTyhryC91vW4fU04" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.NB1Ugl8Zqu.iCIWGNR8e" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.3NyErH9CbqlDwEncvKjh" height="400" width="400" />
 </p>
 
 ## 项目介绍
