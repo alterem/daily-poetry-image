@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/2 12:17:17
+  最近一次生成时间: 2024/3/2 14:19:59
 </p>
 <p align="center">
-日照新妆水底明，风飘香袂空中举。
+香炉初上日，瀑水喷成虹。
 </p>
 <p align="center">
-<<采莲曲>> • 李白
+<<彭蠡湖中望庐山>> • 孟浩然
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.kFcTbAGLq2BTCDEmzYX." height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.RqmVjK1zSIR2pm8nBs2g" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.jhjN3GFqvJUP9vsRW_71" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.o6wOpFXt0.BFQj5B2bFS" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.D8yGz.IDWgGIx4XH.tBF" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.xtAjBXj._oUlUh181pqI" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.WMjbXK59pqRySHKE1Y5d" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.YkQvaI_y5VsVwyIgmik2" height="400" width="400" />
 </p>
 
 ## 项目介绍
