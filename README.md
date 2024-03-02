@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/3 04:14:28
+  最近一次生成时间: 2024/3/3 06:14:17
 </p>
 <p align="center">
-水满有时观下鹭，草深无处不鸣蛙。
+春游之盛，西湖未能过也。
 </p>
 <p align="center">
-<<幽居初夏>> • 陆游
+<<琵琶仙·双桨来时>> • 姜夔
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.EDi_tioUs2g5q.BkzNpM" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.SsyXoNSZTp__WODabiQ_" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.YurWvwIiegLPpW_xsTKO" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.utj_c14caigZ4HkXEA33" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.vlWV1WLYRVw3Itvg7Y4f" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.66wbWM3eiyrOfhrZfo.f" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.uPbujfhi8AFM.z4q.Az9" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.A1AatseueVf3B8kJbBVx" height="400" width="400" />
 </p>
 
 ## 项目介绍
