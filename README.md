@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/2 14:19:59
+  最近一次生成时间: 2024/3/2 18:14:07
 </p>
 <p align="center">
-香炉初上日，瀑水喷成虹。
+黄昏庭院柳啼鸦，记得那人，和月折梨花。
 </p>
 <p align="center">
-<<彭蠡湖中望庐山>> • 孟浩然
+<<虞美人·东风荡飏轻云缕>> • 陈亮
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.D8yGz.IDWgGIx4XH.tBF" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.xtAjBXj._oUlUh181pqI" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.WMjbXK59pqRySHKE1Y5d" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.YkQvaI_y5VsVwyIgmik2" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.pclsfeGNt752t_aqN41a" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.wSsY2RgT4DZCf0VuI1ud" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.VN.cEk3QGunNs6azGx61" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.a4QyxBzYYD.XKBvdvWTV" height="400" width="400" />
 </p>
 
 ## 项目介绍
