@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/2 10:18:24
+  最近一次生成时间: 2024/3/2 12:17:17
 </p>
 <p align="center">
-想翠竹、碧梧风采，旧游何处。
+日照新妆水底明，风飘香袂空中举。
 </p>
 <p align="center">
-<<满江红·题碧梧翠竹送李阳春>> • 张宁
+<<采莲曲>> • 李白
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.LJDdOCXyqnDSs.Fe93xG" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.edzlTKmwudQ44FJatKHd" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.MXtMoYQAzygnqNyNBidp" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.tbbw4eyNTOqIhOGEvSBL" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.kFcTbAGLq2BTCDEmzYX." height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.RqmVjK1zSIR2pm8nBs2g" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.jhjN3GFqvJUP9vsRW_71" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.o6wOpFXt0.BFQj5B2bFS" height="400" width="400" />
 </p>
 
 ## 项目介绍
