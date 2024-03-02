@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/3 00:18:59
+  最近一次生成时间: 2024/3/3 02:19:41
 </p>
 <p align="center">
-父兮生我，母兮鞠我。
+波上马嘶看棹去，柳边人歇待船归。
 </p>
 <p align="center">
-<<蓼莪>> • 佚名
+<<利州南渡>> • 温庭筠
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.RLUGfp2q6pPNmrdCI8b5" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.8OU.Xx2Jsaxw0IyVYPcE" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.YhHTQB0G4yAHmONL3yIP" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.xJHUmXZMiA5DlUeUiBSg" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.9eVWFO1ONWkuog7dBNzt" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.QTovNm2yYzBwjrMUtroN" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.9bCAlAFNIY_N2lOlVnBt" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.mLs_K.jAAR59ETjM1rxR" height="400" width="400" />
 </p>
 
 ## 项目介绍
