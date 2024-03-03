@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/3 06:14:17
+  最近一次生成时间: 2024/3/3 09:07:55
 </p>
 <p align="center">
-春游之盛，西湖未能过也。
+秋菊有佳色，裛露掇其英。
 </p>
 <p align="center">
-<<琵琶仙·双桨来时>> • 姜夔
+<<饮酒·其四>> • 陶渊明
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.vlWV1WLYRVw3Itvg7Y4f" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.66wbWM3eiyrOfhrZfo.f" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.uPbujfhi8AFM.z4q.Az9" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.A1AatseueVf3B8kJbBVx" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.CWdxBDZbKP2SqJj3cSYj" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.4GbCjfaw20dmOqkU2ii4" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.g2Weu8iDBCKVMA5F1Ql1" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.uQfb5Xv2GKQSmpSWRWUv" height="400" width="400" />
 </p>
 
 ## 项目介绍
