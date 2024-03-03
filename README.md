@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/3 09:07:55
+  最近一次生成时间: 2024/3/3 10:21:53
 </p>
 <p align="center">
-秋菊有佳色，裛露掇其英。
+茶鼎熟，酒卮扬，醉来诗兴狂。
 </p>
 <p align="center">
-<<饮酒·其四>> • 陶渊明
+<<阮郎归·立夏>> • 张大烈
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.CWdxBDZbKP2SqJj3cSYj" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.4GbCjfaw20dmOqkU2ii4" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.g2Weu8iDBCKVMA5F1Ql1" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.uQfb5Xv2GKQSmpSWRWUv" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.kyhFnMoKevtHC.r_qEJY" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.DNA1EoityurFEtBKWsP9" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.DXrtLLj3a_Fl_77ZNc43" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4._AnxuajQV_1upSUilpMM" height="400" width="400" />
 </p>
 
 ## 项目介绍
