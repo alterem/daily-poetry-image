@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/4 12:46:48
+  最近一次生成时间: 2024/3/4 15:05:51
 </p>
 <p align="center">
-江头未是风波恶，别有人间行路难！
+接天莲叶无穷碧，映日荷花别样红。
 </p>
 <p align="center">
-<<鹧鸪天·送人>> • 辛弃疾
+<<晓出净慈寺送林子方>> • 杨万里
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.CWeyJltdpJuzas2qEqq4" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.7c2ttuY_P6b7X8v6l1LG" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.oMAwgQCvdo5Mi5MY8SIy" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.G1Q_gnIgvkSbWMmDYhuL" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.J16lbehse4cWCSWQjJuz" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.hkXMV8zQWzQ_K2W5PQuU" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.JpOTfjvp4g_d5YU0PMzz" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.ejb7gMigze1H5WuOKHpr" height="400" width="400" />
 </p>
 
 ## 项目介绍
