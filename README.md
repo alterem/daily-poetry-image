@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/4 18:09:13
+  最近一次生成时间: 2024/3/4 20:33:02
 </p>
 <p align="center">
-渡江天马南来，几人真是经纶手。
+锦江近西烟水绿，新雨山头荔枝熟。
 </p>
 <p align="center">
-<<水龙吟·甲辰岁寿韩南涧尚书>> • 辛弃疾
+<<成都曲>> • 张籍
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.ojW_kt9MIIrfxQgn0e.N" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.fVWq2J132pVR840c0nBk" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.bhjpOAKLNqi7zxVhslyY" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.iQU_nenuFSloVPUOm175" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.EjneNw0s7Lr2eDJUKcGs" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.J0xQTjOWa67iUDRDENbS" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.6AiZVyIisevr8ej3bb08" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1._26_HMfS7VtLd3b7Y6.R" height="400" width="400" />
 </p>
 
 ## 项目介绍
