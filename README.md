@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/4 20:33:02
+  最近一次生成时间: 2024/3/5 06:16:18
 </p>
 <p align="center">
-锦江近西烟水绿，新雨山头荔枝熟。
+举杯邀明月，对影成三人。
 </p>
 <p align="center">
-<<成都曲>> • 张籍
+<<月下独酌四首·其一>> • 李白
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.EjneNw0s7Lr2eDJUKcGs" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.J0xQTjOWa67iUDRDENbS" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.6AiZVyIisevr8ej3bb08" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1._26_HMfS7VtLd3b7Y6.R" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.WgsCkuWFZULhdRLcyGYx" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.gFfNiQ42VMIU50bFlx4x" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.etQZL7J6MDwEfEwDsF2h" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.6FoHBUzp9vJMWboReR5_" height="400" width="400" />
 </p>
 
 ## 项目介绍
