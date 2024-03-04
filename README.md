@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/4 11:01:19
+  最近一次生成时间: 2024/3/4 12:46:48
 </p>
 <p align="center">
-尘世难逢开口笑，菊花须插满头归。
+江头未是风波恶，别有人间行路难！
 </p>
 <p align="center">
-<<九日齐山登高>> • 杜牧
+<<鹧鸪天·送人>> • 辛弃疾
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.3dYh0MgEqe_Zt7vRaqiP" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.Lq43UDw8YZUnWw2nlCTH" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.O2F_Vu.xb3LFAiflA1qK" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.PvlIAe7nlOMUCEKR0T9f" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.CWeyJltdpJuzas2qEqq4" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.7c2ttuY_P6b7X8v6l1LG" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.oMAwgQCvdo5Mi5MY8SIy" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.G1Q_gnIgvkSbWMmDYhuL" height="400" width="400" />
 </p>
 
 ## 项目介绍
