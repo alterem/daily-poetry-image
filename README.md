@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/6 00:25:13
+  最近一次生成时间: 2024/3/6 04:21:01
 </p>
 <p align="center">
-共眠一舸听秋雨，小簟轻衾各自寒。
+携手藕花湖上路。一霎黄梅细雨。
 </p>
 <p align="center">
-<<桂殿秋·思往事>> • 朱彝尊
+<<清平乐·夏日游湖>> • 朱淑真
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.Eyhw9E2GcbRxPjXqwtqn" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.wvHQXLzLgMyN4jaVAJlU" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.aQk0BXl8UbKw68nebmjo" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.Vj2qgLELipumhpgjwIDL" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.rSggs94CjkXO68L_WOSw" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.XdHjvHdqBjz2LqQpTSkW" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.NRXriVdCz9bmkxcMrak2" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.pSMtBX1FbUwGRRO6rzd5" height="400" width="400" />
 </p>
 
 ## 项目介绍
