@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/5 20:29:22
+  最近一次生成时间: 2024/3/6 00:25:13
 </p>
 <p align="center">
-中秋佳月最端圆。老痴顽。见多番。
+共眠一舸听秋雨，小簟轻衾各自寒。
 </p>
 <p align="center">
-<<江城子·中秋早雨晚晴>> • 陈著
+<<桂殿秋·思往事>> • 朱彝尊
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.Cs7BxY4ZfTriZ3MdECSP" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.aMPTegALy7WtDrLLluKZ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.VDSjjolT6S8twhNJB.Vr" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.rV53Gk_r.TYgOioxQVhT" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.Eyhw9E2GcbRxPjXqwtqn" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.wvHQXLzLgMyN4jaVAJlU" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.aQk0BXl8UbKw68nebmjo" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.Vj2qgLELipumhpgjwIDL" height="400" width="400" />
 </p>
 
 ## 项目介绍
