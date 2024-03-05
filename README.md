@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/6 04:21:01
+  最近一次生成时间: 2024/3/6 06:14:33
 </p>
 <p align="center">
-携手藕花湖上路。一霎黄梅细雨。
+归志宁无五亩园，读书本意在元元。
 </p>
 <p align="center">
-<<清平乐·夏日游湖>> • 朱淑真
+<<读书>> • 陆游
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.rSggs94CjkXO68L_WOSw" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.XdHjvHdqBjz2LqQpTSkW" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.NRXriVdCz9bmkxcMrak2" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.pSMtBX1FbUwGRRO6rzd5" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4._tPGx5Gj85ZbmHmUKHZu" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.vEKTqsz82B1UAkIkmNoI" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.M7HknKDFhUY2U7M7LDgD" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.Gw71fwj5MR1Kb8nALtlH" height="400" width="400" />
 </p>
 
 ## 项目介绍
