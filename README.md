@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/5 12:19:05
+  最近一次生成时间: 2024/3/5 14:19:08
 </p>
 <p align="center">
-登高壮观天地间，大江茫茫去不还。
+桃未芳菲杏未红，冲寒先喜笑东风。
 </p>
 <p align="center">
-<<庐山谣寄卢侍御虚舟>> • 李白
+<<咏红梅花得“红”字>> • 曹雪芹
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.SOKqTX2PuT8V98jeZopa" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.WG0hckCdslgQ2JihRmkL" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.s1BWkGp0vNElD6miQPZC" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.yuxQmhOg4Cot8QBQJUmw" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.zE42V2Y8esEqZYX05AKa" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.xX.1f4ICIxCQpgifsTD2" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.irLLN9Pq7J.Z9JtkHmWC" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.JzRjvcSiwQBfLDJDJgi7" height="400" width="400" />
 </p>
 
 ## 项目介绍
