@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/6 18:15:56
+  最近一次生成时间: 2024/3/6 20:28:51
 </p>
 <p align="center">
-虚空落泉千仞直，雷奔入江不暂息。
+日照香炉生紫烟，遥看瀑布挂前川。
 </p>
 <p align="center">
-<<庐山瀑布>> • 徐凝
+<<望庐山瀑布>> • 李白
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.RwbwR4aTUFIsfbvzfPiY" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.Qx.RY7bQGAEvi34JiPsE" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.khfdFrJDMWDNpoMJMXvN" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.4aR16vy5O8QpuKER4VmK" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.4NKG.dHMSW3BrcZH6pvs" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.ACW3goSY9R4AsWJbiHHH" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.Yix0bQQdIKk.pbk15BXl" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.MXNUnXzrk4abn4nph0NQ" height="400" width="400" />
 </p>
 
 ## 项目介绍
