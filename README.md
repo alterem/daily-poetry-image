@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/6 09:04:35
+  最近一次生成时间: 2024/3/6 10:19:55
 </p>
 <p align="center">
-借问酒家何处有？牧童遥指杏花村。
+中山人予之猫，猫善捕鼠及鸡。
 </p>
 <p align="center">
-<<清明>> • 杜牧
+<<乞猫>> • 刘基
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.HhskkUkmIXVBccoVc5ap" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.h1LkXunDsnYVK7dqYbH_" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.cW9wIzt_krdeVTHhPdbN" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.Gz5IL2aahsx30owrwzSw" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.GpXDXubsz9_dQQ6E5DtY" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.9kvWilbEzFFLOVReoZwr" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.M1YSJvN34cjRjunwY0Mj" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.dM._VYKB4k7kEylfLxcq" height="400" width="400" />
 </p>
 
 ## 项目介绍
