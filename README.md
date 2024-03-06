@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/6 14:21:01
+  最近一次生成时间: 2024/3/6 16:20:11
 </p>
 <p align="center">
-寒夜客来茶当酒，竹炉汤沸火初红。
+夜来南风起，小麦覆陇黄。
 </p>
 <p align="center">
-<<寒夜>> • 杜耒
+<<观刈麦>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.Q8nZUUvzL2dhF8R0B_O1" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.wlzK21BJWtieMNHrIbQN" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.gmuawaAD9lH58Kd358au" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.9io2Nh613kG7s4mRSsPz" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.p_xRZOvXHKXK_Fb6nQi8" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.djp1K1fY.VkglOxDYZQX" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.8RikpID9bPwY1XeD8NKG" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.KSxwqx0_bq4VtsBNvJFv" height="400" width="400" />
 </p>
 
 ## 项目介绍
