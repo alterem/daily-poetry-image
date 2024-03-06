@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/6 16:20:11
+  最近一次生成时间: 2024/3/6 18:15:56
 </p>
 <p align="center">
-夜来南风起，小麦覆陇黄。
+虚空落泉千仞直，雷奔入江不暂息。
 </p>
 <p align="center">
-<<观刈麦>> • 白居易
+<<庐山瀑布>> • 徐凝
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.p_xRZOvXHKXK_Fb6nQi8" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.djp1K1fY.VkglOxDYZQX" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.8RikpID9bPwY1XeD8NKG" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.KSxwqx0_bq4VtsBNvJFv" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.RwbwR4aTUFIsfbvzfPiY" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.Qx.RY7bQGAEvi34JiPsE" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.khfdFrJDMWDNpoMJMXvN" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.4aR16vy5O8QpuKER4VmK" height="400" width="400" />
 </p>
 
 ## 项目介绍
