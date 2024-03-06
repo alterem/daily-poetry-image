@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/7 00:26:43
+  最近一次生成时间: 2024/3/7 02:22:50
 </p>
 <p align="center">
-江间波浪兼天涌，塞上风云接地阴。
+长记曾携手处，千树压、西湖寒碧。
 </p>
 <p align="center">
-<<秋兴八首·其一>> • 杜甫
+<<暗香·旧时月色>> • 姜夔
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.bsULRjrbkw4ebDIL7up4" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.NP4w1rcRKbeCEEt556dd" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.fkFuuYB37lSIpm8rxy0a" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.2bON5zjG5DPvjzSaFgaQ" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.FeC2WjKmC8Xw1muqDwTH" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.DsOQhmZygUliBey1laBl" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.59ZomAISKT6Da094MrbJ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.dm07MJ0RB4ixz1RWy.w6" height="400" width="400" />
 </p>
 
 ## 项目介绍
