@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/7 04:17:24
+  最近一次生成时间: 2024/3/7 06:15:13
 </p>
 <p align="center">
-行尽江南，不与离人遇。
+重铸锄犁作斤，姑舂妇担去轮官，输官不足归卖屋。
 </p>
 <p align="center">
-<<蝶恋花·梦入江南烟水路>> • 晏几道
+<<田家词 / 田家行>> • 元稹
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.HS.oEvWzsMcW7HIhvYz5" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.6yI8vU2oL.DdfP4Z73H_" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.Lv0BUtTIBc9pdPoS1ry6" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.g0i6z4MsfdgUAvRtuEtS" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.SITcK81wC.w4KNCOVWgt" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.aOAqrMB4eNjJ8OEsl5JU" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.WzIxARjBbE7GpgT_VvT_" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.90tpxNGxuR7wy5RBtQ1r" height="400" width="400" />
 </p>
 
 ## 项目介绍
