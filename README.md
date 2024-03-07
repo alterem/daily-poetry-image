@@ -8,18 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/7 12:17:03
+  最近一次生成时间: 2024/3/7 14:19:51
 </p>
 <p align="center">
-横笛闻声不见人，红旗直上天山雪。
+桐花万里丹山路，雏凤清于老凤声。
 </p>
 <p align="center">
-<<从军行>> • 陈羽
+<<韩冬郎即席为诗相送一座尽惊他日余方追吟连宵侍坐裴回久之句有老成之风因成二绝寄酬兼呈畏之员外·其一>> • 李商隐
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.Xn24rEaVgMNBrEqRSicC" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.htpVRGZNbRI.wtS4thXD" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.2kR9Ev70iccQHRqCiyDa" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.XFCC2L75vU5YLqDYzgIz" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.JYhobM4q29xahLXZKgjk" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.PduD3qG4VKAnGYPNi9fG" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.HEvLCG2J0UfvOteyhbbl" height="400" width="400" />
 </p>
 
 ## 项目介绍
