@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/7 16:15:19
+  最近一次生成时间: 2024/3/7 18:14:36
 </p>
 <p align="center">
-中山人予之猫，猫善捕鼠及鸡。
+山上层层桃李花，云间烟火是人家。
 </p>
 <p align="center">
-<<乞猫>> • 刘基
+<<竹枝词九首·其九>> • 刘禹锡
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4..tYpgMr2kW63hAx1BbjT" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.clOxNAus24i07hz57fwB" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.d0i.523KOoENQMoHrtcD" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.T9oOjhRJF2PRc_MOaGzO" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.GZ.E05M8jC0tGVnZ9gBC" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.Ax3N5f3YsxJcQB9Ls5.m" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.beQ.TXCcl0tKzILMc_LN" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.kR3xj_MIhwjQH3PdUisJ" height="400" width="400" />
 </p>
 
 ## 项目介绍
