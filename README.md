@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/7 06:15:13
+  最近一次生成时间: 2024/3/7 08:54:05
 </p>
 <p align="center">
-重铸锄犁作斤，姑舂妇担去轮官，输官不足归卖屋。
+寒泉贮、绀壶渐暖，年事对、青灯惊换了。
 </p>
 <p align="center">
-<<田家词 / 田家行>> • 元稹
+<<花犯·谢黄复庵除夜寄古梅枝>> • 吴文英
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.SITcK81wC.w4KNCOVWgt" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.aOAqrMB4eNjJ8OEsl5JU" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.WzIxARjBbE7GpgT_VvT_" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.90tpxNGxuR7wy5RBtQ1r" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.fJVUaHSoRcpggZqQQkZR" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.VIWpo9yX6URrxg5PKxRW" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.bLxmWaA5HVjC7HRpi0_M" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.._sfl7gpxfkkz89jYT4I" height="400" width="400" />
 </p>
 
 ## 项目介绍
