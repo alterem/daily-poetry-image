@@ -8,19 +8,18 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/7 08:54:05
+  最近一次生成时间: 2024/3/7 12:17:03
 </p>
 <p align="center">
-寒泉贮、绀壶渐暖，年事对、青灯惊换了。
+横笛闻声不见人，红旗直上天山雪。
 </p>
 <p align="center">
-<<花犯·谢黄复庵除夜寄古梅枝>> • 吴文英
+<<从军行>> • 陈羽
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.fJVUaHSoRcpggZqQQkZR" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.VIWpo9yX6URrxg5PKxRW" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.bLxmWaA5HVjC7HRpi0_M" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.._sfl7gpxfkkz89jYT4I" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.Xn24rEaVgMNBrEqRSicC" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.htpVRGZNbRI.wtS4thXD" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.2kR9Ev70iccQHRqCiyDa" height="400" width="400" />
 </p>
 
 ## 项目介绍
