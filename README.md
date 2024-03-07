@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/7 18:14:36
+  最近一次生成时间: 2024/3/7 20:28:11
 </p>
 <p align="center">
-山上层层桃李花，云间烟火是人家。
+塞马一声嘶，残星拂大旗。
 </p>
 <p align="center">
-<<竹枝词九首·其九>> • 刘禹锡
+<<菩萨蛮·朔风吹散三更雪>> • 纳兰性德
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.GZ.E05M8jC0tGVnZ9gBC" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.Ax3N5f3YsxJcQB9Ls5.m" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.beQ.TXCcl0tKzILMc_LN" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.kR3xj_MIhwjQH3PdUisJ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.A8XtxX40Aqg3jD2XOh_4" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.xYyqxk_liYgvvOxxaz5T" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.V1zwsACoyNqefj192QIS" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.n7ZgDKW0w9M9TCQoWv07" height="400" width="400" />
 </p>
 
 ## 项目介绍
