@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/7 22:22:03
+  最近一次生成时间: 2024/3/8 02:24:21
 </p>
 <p align="center">
-晓月暂飞高树里，秋河隔在数峰西。
+死去元知万事空，但悲不见九州同。
 </p>
 <p align="center">
-<<宿石邑山中>> • 韩翃
+<<示儿>> • 陆游
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.yKWKEuiv99GZfLjMuLVP" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.QFzd5DRk8tukGWFzhgjR" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.q1QiZEU89WPwwFHfxCNH" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.9jJw5w0OCyaxYfJmh3JP" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.3.jjl1e9FNdGHi7rRBZ4" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.WSK8smL7Udzu6.VTsbcB" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.xX0DsvR.ampPqBxmwsLV" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2._4S9K08IFBpDzBkFnV3G" height="400" width="400" />
 </p>
 
 ## 项目介绍
