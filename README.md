@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/7 14:19:51
+  最近一次生成时间: 2024/3/7 16:15:19
 </p>
 <p align="center">
-桐花万里丹山路，雏凤清于老凤声。
+中山人予之猫，猫善捕鼠及鸡。
 </p>
 <p align="center">
-<<韩冬郎即席为诗相送一座尽惊他日余方追吟连宵侍坐裴回久之句有老成之风因成二绝寄酬兼呈畏之员外·其一>> • 李商隐
+<<乞猫>> • 刘基
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.XFCC2L75vU5YLqDYzgIz" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.JYhobM4q29xahLXZKgjk" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.PduD3qG4VKAnGYPNi9fG" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.HEvLCG2J0UfvOteyhbbl" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4..tYpgMr2kW63hAx1BbjT" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.clOxNAus24i07hz57fwB" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.d0i.523KOoENQMoHrtcD" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.T9oOjhRJF2PRc_MOaGzO" height="400" width="400" />
 </p>
 
 ## 项目介绍
