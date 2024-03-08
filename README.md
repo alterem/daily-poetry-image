@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/8 16:18:39
+  最近一次生成时间: 2024/3/8 18:17:49
 </p>
 <p align="center">
-绿叶兮素华，芳菲菲兮袭予；
+中山人予之猫，猫善捕鼠及鸡。
 </p>
 <p align="center">
-<<九歌>> • 屈原
+<<乞猫>> • 刘基
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.PKjywvF350mwk1Kxxg0b" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.IQ.MAd9zrQar8__4YKK5" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3._0.0Wh48WQIcOF3mpAI_" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.atj.3RDWmpgw1h.wHOUg" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.Px4qKbodlPz5cIyVW08d" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.E7GtJbt6oeI0IcPTqAa5" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.tuzLbOOYEpuG9AURifGb" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.so44dm2ABNB6aEUtOM8Q" height="400" width="400" />
 </p>
 
 ## 项目介绍
