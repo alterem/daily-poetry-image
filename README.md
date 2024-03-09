@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/9 09:02:08
+  最近一次生成时间: 2024/3/9 12:16:41
 </p>
 <p align="center">
-天长地久有时尽，此恨绵绵无绝期。
+暗灯凉簟怨分离，妖姬，不胜悲。
 </p>
 <p align="center">
-<<长恨歌>> • 白居易
+<<河传·秋雨>> • 阎选
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.u_u2bt1bAs5QR.XGE2LA" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.9kiYqZ5_M.wqq.S0_f5P" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.j4syPiHjYyioWpN0CI0I" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.guV_z3Bo2GjUhtB7S5w4" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.DSFrKr0AlJjcSNEOrT4Y" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.h8YbjH99aJ9fOa_IN6t7" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.iznEHNlvcua3WY9Hiq2Y" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.LuNG7xrdDYKezLIiIOMB" height="400" width="400" />
 </p>
 
 ## 项目介绍
