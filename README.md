@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/10 02:18:01
+  最近一次生成时间: 2024/3/10 04:14:45
 </p>
 <p align="center">
-庭轩寂寞近清明，残花中酒，又是去年病。
+来日绮窗前，寒梅著花未。
 </p>
 <p align="center">
-<<青门引·春思>> • 张先
+<<杂诗三首 / 杂咏三首>> • 王维
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.p8gc.b571xsOcY_JSrlO" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.EMrJyjn8OAe43EnnDw23" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.BI2MltgHme_fxuVlf1.4" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.JotFLEUKy_tSChLfufpk" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.aDUYpB1OUp4ncAdkkYKm" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.SSF0dOQkRTR3mx254Tne" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.ktc26IWhrh3hgUtKIHRl" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.LxHv7e69yDlppTKViiBv" height="400" width="400" />
 </p>
 
 ## 项目介绍
