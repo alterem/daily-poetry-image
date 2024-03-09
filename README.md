@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/9 22:15:37
+  最近一次生成时间: 2024/3/10 00:19:57
 </p>
 <p align="center">
-独写菖蒲竹叶杯，蓬城芳草踏初回。
+对菱花、与说相思，看谁瘦损。
 </p>
 <p align="center">
-<<午日处州禁竞渡>> • 汤显祖
+<<瑞鹤仙·梅>> • 陆叡
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.f5JPSQo6Nhnk_2C3t2hQ" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.3dfGw2G18e4gRqpAjs4w" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.Tk8BpA9cHSQEUklEJo26" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.lZolkuE6DMpgZk6_.2d7" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.3u7nAiHLqXYIq8i_aDv8" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4._61AiqhgzoE63xb1wlCo" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.gX7hr_aqNo0LVShsjdYF" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.FvxeyUVojAFTfvcJjV1O" height="400" width="400" />
 </p>
 
 ## 项目介绍
