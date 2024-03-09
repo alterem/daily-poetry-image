@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/9 20:24:30
+  最近一次生成时间: 2024/3/9 22:15:37
 </p>
 <p align="center">
-感此怀故人，中宵劳梦想。
+独写菖蒲竹叶杯，蓬城芳草踏初回。
 </p>
 <p align="center">
-<<夏日南亭怀辛大>> • 孟浩然
+<<午日处州禁竞渡>> • 汤显祖
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.stE6QK96e4mg8lJIwrkg" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.uu5TpTX7QnZ.kEYIswlA" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.6ppWE1UTOpDf5hCIguiF" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.q_78_o9.W8Ef1Qv7x5Fm" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.f5JPSQo6Nhnk_2C3t2hQ" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.3dfGw2G18e4gRqpAjs4w" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.Tk8BpA9cHSQEUklEJo26" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.lZolkuE6DMpgZk6_.2d7" height="400" width="400" />
 </p>
 
 ## 项目介绍
