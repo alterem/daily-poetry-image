@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/9 12:16:41
+  最近一次生成时间: 2024/3/9 14:20:24
 </p>
 <p align="center">
-暗灯凉簟怨分离，妖姬，不胜悲。
+荷花开后西湖好，载酒来时。
 </p>
 <p align="center">
-<<河传·秋雨>> • 阎选
+<<采桑子·荷花开后西湖好>> • 欧阳修
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.DSFrKr0AlJjcSNEOrT4Y" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.h8YbjH99aJ9fOa_IN6t7" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.iznEHNlvcua3WY9Hiq2Y" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.LuNG7xrdDYKezLIiIOMB" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.lEsqKYCIEe.xfiYES4_a" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.IOG.S6MEtySSVCQt4AZA" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.gG_bQoWfOL6Pc.Op1ZmU" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3..dqwz7na_APeyFE3iRLg" height="400" width="400" />
 </p>
 
 ## 项目介绍
