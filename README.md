@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/9 18:16:08
+  最近一次生成时间: 2024/3/9 20:24:30
 </p>
 <p align="center">
-九衢雪小，千门月淡，元宵灯近。
+感此怀故人，中宵劳梦想。
 </p>
 <p align="center">
-<<水龙吟·咏月>> • 晁端礼
+<<夏日南亭怀辛大>> • 孟浩然
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.jYhiCTb_4B5xBtdtW9Ww" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.5L_ahFxdNw8b_yiUXenZ" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.YQHxGerH8c2E4P3KEY7F" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.PiEuXqT8rhYYUqf0CgXU" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.stE6QK96e4mg8lJIwrkg" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.uu5TpTX7QnZ.kEYIswlA" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.6ppWE1UTOpDf5hCIguiF" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.q_78_o9.W8Ef1Qv7x5Fm" height="400" width="400" />
 </p>
 
 ## 项目介绍
