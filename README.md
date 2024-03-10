@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/10 22:14:18
+  最近一次生成时间: 2024/3/11 00:20:13
 </p>
 <p align="center">
-叹寄与路遥，夜雪初积。
+燕子衔将春色去，纱窗几阵黄梅雨。
 </p>
 <p align="center">
-<<暗香疏影>> • 姜夔
+<<黄金缕·妾本钱塘江上住>> • 司马槱
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.XNSoNviKzaH7anT.SvNi" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.R6jzrTgsoP35JgoFHzrm" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.nmOi1W7Z1H7M6zfDjm.n" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.ib0yQ5KqkHR4.PML5pnA" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.WYLPEVG1D_nyqGjmx4u4" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.qhSMrHm5hJAhoUwk_SZC" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.c0n_rH0KhgPypPel5wQH" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.QkQGsIB6pE0WsI2F5qVp" height="400" width="400" />
 </p>
 
 ## 项目介绍
