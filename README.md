@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/10 06:14:53
+  最近一次生成时间: 2024/3/10 09:08:48
 </p>
 <p align="center">
-陪都歌舞迎佳节，遥祝延安景物华。
+翻空白鸟时时见，照水红蕖细细香。
 </p>
 <p align="center">
-<<元旦口占用柳亚子怀人韵>> • 董必武
+<<鹧鸪天·林断山明竹隐墙>> • 苏轼
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.T33Vru7vX9ePdcgeKaH4" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1._Tn.J8vy.6pw0LG90idV" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.T_AsHVuUdYzaYd4S8bA9" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.bbUJW3iXIOopjP7VNrpV" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.kpdRxxsQuZgIZA7jBq8o" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.1j6KTdQ058Mz9UkokIik" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.hbQymID_kWYqvnbwjMIP" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.Lwl1IikJpc5K3zoEYlKY" height="400" width="400" />
 </p>
 
 ## 项目介绍
