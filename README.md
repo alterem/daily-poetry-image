@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/11 00:20:13
+  最近一次生成时间: 2024/3/11 02:18:20
 </p>
 <p align="center">
-燕子衔将春色去，纱窗几阵黄梅雨。
+中山人予之猫，猫善捕鼠及鸡。
 </p>
 <p align="center">
-<<黄金缕·妾本钱塘江上住>> • 司马槱
+<<乞猫>> • 刘基
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.WYLPEVG1D_nyqGjmx4u4" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.qhSMrHm5hJAhoUwk_SZC" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.c0n_rH0KhgPypPel5wQH" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.QkQGsIB6pE0WsI2F5qVp" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3..ImcFx61154GJKbKPhbL" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.CRd_WNzZYjrKfywAcuAS" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3..Fu4sOM7rQJM8CaEDp8X" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.Vo8Tet9KIlODWfzesY7I" height="400" width="400" />
 </p>
 
 ## 项目介绍
