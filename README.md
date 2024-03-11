@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/12 04:19:06
+  最近一次生成时间: 2024/3/12 06:14:53
 </p>
 <p align="center">
-朝辞白帝彩云间，千里江陵一日还。
+落木萧萧，琉璃叶下琼葩吐。
 </p>
 <p align="center">
-<<早发白帝城 / 白帝下江陵>> • 李白
+<<点绛唇·素香丁香>> • 王十朋
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.IIPTcew1gSM2t9A_aMOQ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.J1M.u5ChyHRJTQJmuCV9" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.M3sl2GrBYQ2Ut3hOIc2I" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.JkKSMkAfc_gs1g0GGEK_" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.h83CHkisFYKbXdscxOj9" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.XnGHCtfOocsDXIpNNDIQ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.In_9t.y0bkUG6.7tDygk" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.C2sWKD9tn5WT6DTFbMeZ" height="400" width="400" />
 </p>
 
 ## 项目介绍
