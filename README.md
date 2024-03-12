@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/12 09:04:08
+  最近一次生成时间: 2024/3/12 10:19:38
 </p>
 <p align="center">
-路人借问遥招手，怕得鱼惊不应人。
+灯火纸窗修竹里，读书声。
 </p>
 <p align="center">
-<<小儿垂钓>> • 胡令能
+<<浣溪沙·初夏夜饮归>> • 陈继儒
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.2ILIcbg327xwHWIfalB8" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.8gC1G13YA4jX9Zz6RosC" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.78uWH2msGlDAxYouckoR" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.rirTUsYZCmliaFXTn8bB" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.E0UJdfdq2cLUPVd9vcia" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.R.HLcntncSS2F8Grg6Vx" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.40bKM4q29585O9ryZwQa" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.Q4hVDPRGUHHEihyKV9ox" height="400" width="400" />
 </p>
 
 ## 项目介绍
