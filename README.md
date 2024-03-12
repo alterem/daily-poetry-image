@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/12 10:19:38
+  最近一次生成时间: 2024/3/12 12:20:23
 </p>
 <p align="center">
-灯火纸窗修竹里，读书声。
+行宫见月伤心色，夜雨闻铃肠断声。
 </p>
 <p align="center">
-<<浣溪沙·初夏夜饮归>> • 陈继儒
+<<长恨歌>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.E0UJdfdq2cLUPVd9vcia" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.R.HLcntncSS2F8Grg6Vx" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.40bKM4q29585O9ryZwQa" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.Q4hVDPRGUHHEihyKV9ox" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.OeIvTHNimorXKEYN.rpO" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.yzYYP3lABvI_DNc7KbFY" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.DrDCuAMmUKcVFkT5kgGn" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.WjhSObb3gtnBolOId2Am" height="400" width="400" />
 </p>
 
 ## 项目介绍
