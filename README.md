@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/12 18:15:46
+  最近一次生成时间: 2024/3/12 20:27:35
 </p>
 <p align="center">
-数里黄沙行客路，不堪回首思秦原。
+大漠西风急，黄榆凉叶飞。
 </p>
 <p align="center">
-<<春日秦国怀古>> • 周朴
+<<塞上曲>> • 田锡
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.X1eGOr03vJ_wSIpkY2Ih" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.jeShD9xgdSki0J9PAByk" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.qCtAdyiCcz.oka4_Yj_J" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.f_Av2ZbeM2AB1GsQ6TK8" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.JkVmevjWGmWXHUC3TIjV" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.9PtS2bIhKj_Qr_Vvyqe1" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.4NSIaN1xYeYqWbs1GrLv" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.Mzw1QOKfsKEbVOYnTBX8" height="400" width="400" />
 </p>
 
 ## 项目介绍
