@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/12 12:20:23
+  最近一次生成时间: 2024/3/12 14:19:25
 </p>
 <p align="center">
-行宫见月伤心色，夜雨闻铃肠断声。
+起舞徘徊风露下，今夕不知何夕。
 </p>
 <p align="center">
-<<长恨歌>> • 白居易
+<<念奴娇·中秋>> • 苏轼
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.OeIvTHNimorXKEYN.rpO" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.yzYYP3lABvI_DNc7KbFY" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.DrDCuAMmUKcVFkT5kgGn" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.WjhSObb3gtnBolOId2Am" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.mmMiU2R0B_IHjzBu0.y5" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.kWhwMXHhhnnjROuH5_Tj" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.DBsm0aI8oWHAdURgqSYv" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.kU4sp85HLgDXnzdJL98L" height="400" width="400" />
 </p>
 
 ## 项目介绍
