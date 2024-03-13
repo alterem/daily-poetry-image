@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/14 00:19:29
+  最近一次生成时间: 2024/3/14 02:19:15
 </p>
 <p align="center">
-岭南能有几多花，寒食临之扫春迹。
+守节自誓，亲诲之学。
 </p>
 <p align="center">
-<<寒食>> • 郑刚中
+<<画地学书>> • 欧阳修
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.l0J_.u4AwVdtkWd0Alrs" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.z50FvU_JwmgfkuL66nLK" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.qfQEdPtEk.FwOlCTnSUP" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.S4cJ2ctOVJkIclJJNk6z" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.V9yRicU048Wqou0AnDlD" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.ORxHywTh_7l6ZXDd5yoa" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.9vhCsxpxHbxWtZl9W2LS" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.fwtXMOcYFgRniIW3afZi" height="400" width="400" />
 </p>
 
 ## 项目介绍
