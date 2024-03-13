@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/13 18:16:03
+  最近一次生成时间: 2024/3/13 20:27:46
 </p>
 <p align="center">
-两岸荔枝红，万家烟雨中。
+梧桐叶上三更雨，叶叶声声是别离。
 </p>
 <p align="center">
-<<菩萨蛮·子规啼破城楼月>> • 李师中
+<<鹧鸪天·一点残红欲尽时>> • 周紫芝
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.cPsbdESpEdnIatUHPrAV" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.avvaB.p6oiga7o1K17Nm" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.nEU61A3QGCqniM_4.ZXl" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.omYxk09BXiKFrldIwkMN" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.uyHrNfvc93yaSua_NfTS" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.lTakQjpZyT_5HFP4RpHV" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.9hnMOuWiN1_3Ce.rPGqm" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.31ZpfcpqrQC0c7B6iGnm" height="400" width="400" />
 </p>
 
 ## 项目介绍
