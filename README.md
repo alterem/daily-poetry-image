@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/14 02:19:15
+  最近一次生成时间: 2024/3/14 04:15:15
 </p>
 <p align="center">
-守节自誓，亲诲之学。
+晴浦晚风寒，青山玉骨瘦。
 </p>
 <p align="center">
-<<画地学书>> • 欧阳修
+<<卜算子·雪江晴月（回文，倒读《巫山一段云》）>> • 董以宁《卜算子·雪江晴月（回文，倒读
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.V9yRicU048Wqou0AnDlD" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.ORxHywTh_7l6ZXDd5yoa" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.9vhCsxpxHbxWtZl9W2LS" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.fwtXMOcYFgRniIW3afZi" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.iGQMuYskGvD3PtYUHdIm" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.rBDN.PdKyzm.ocwheY7g" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.o2Uoliaa0tDD8.oTeMBX" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.jK0V.rFipfTqZdLrjh1M" height="400" width="400" />
 </p>
 
 ## 项目介绍
