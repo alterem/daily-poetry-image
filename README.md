@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/14 04:15:15
+  最近一次生成时间: 2024/3/14 06:14:32
 </p>
 <p align="center">
-晴浦晚风寒，青山玉骨瘦。
+挂席几千里，名山都未逢。
 </p>
 <p align="center">
-<<卜算子·雪江晴月（回文，倒读《巫山一段云》）>> • 董以宁《卜算子·雪江晴月（回文，倒读
+<<晚泊浔阳望庐山>> • 孟浩然
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.iGQMuYskGvD3PtYUHdIm" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.rBDN.PdKyzm.ocwheY7g" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.o2Uoliaa0tDD8.oTeMBX" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.jK0V.rFipfTqZdLrjh1M" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.kpDxURs5k_yJvRBYJJNB" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.xi_ywnddhixOeWW7Mmjb" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.nyvUj9YmlmaF6ZunAwf5" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.Vslhte7prZasmGR4Gd6q" height="400" width="400" />
 </p>
 
 ## 项目介绍
