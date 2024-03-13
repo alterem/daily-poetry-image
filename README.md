@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/13 09:05:56
+  最近一次生成时间: 2024/3/13 10:22:24
 </p>
 <p align="center">
-渺万里层云，千山暮雪，只影向谁去？
+应倾谢女珠玑箧，尽写檀郎锦绣篇。
 </p>
 <p align="center">
-<<摸鱼儿·雁丘词 / 迈陂塘>> • 元好问
+<<七夕>> • 罗隐
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.bcEnnadRt3tVChhYlHOI" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.7.p63B0OOA8D2nO1ySOH" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.EPHsGdnOgiI30R7Zs.ql" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.yn.WfkIF6C7iowSkFOli" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.SY3XFYZnzHXaSsCTaWut" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.XNIgKQVtSWv5UtCdZBw4" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.bswsjrgWHHeBHeoInggD" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.tgtEhWcaA6dHOPwydLZ0" height="400" width="400" />
 </p>
 
 ## 项目介绍
