@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/14 14:19:13
+  最近一次生成时间: 2024/3/14 16:18:31
 </p>
 <p align="center">
-感君缠绵意，系在红罗襦。
+平生多感激，忠义非外奖。
 </p>
 <p align="center">
-<<节妇吟·寄东平李司空师道>> • 张籍
+<<酬裴侍御对雨感时见赠>> • 李白
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.tTt3AgwwtOOgvsJukU41" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.AT7XbIWtKFtOGyuElYw." height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.D_dhMSAg.ZrbNaMpEk_l" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.vzNzCxhyZNetAtzYy2Fi" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.k6gfTXT1iwrtt4Bv_BQm" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.jPMSUA93Ou7CTm2dkxV7" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.vnvDqch3ceJVBEmu8VYp" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.GAsLOM7s2Gbyz5w9flis" height="400" width="400" />
 </p>
 
 ## 项目介绍
