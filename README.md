@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/14 20:28:35
+  最近一次生成时间: 2024/3/14 22:15:50
 </p>
 <p align="center">
-曾经沧海难为水，除却巫山不是云。
+九日黄花才过了，一尊聊慰秋容老。
 </p>
 <p align="center">
-<<离思五首·其四>> • 元稹
+<<凤栖梧·霜树重重青嶂小>> • 赵可
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.roJYFKUzdJu0gk71zAVQ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.4kjcA6kKJSwektlgd0nM" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.YeP_SIBJFqsoIav9LZ6G" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.kyqty3SUT1BnngoANdjo" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1._EKJg7MABkOESX43IudP" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.LplXxixDI951jzczcS9F" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.xmEv9co8Y2ZdgT.frYl7" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.97Js7OsT0bWGYX2yBzGe" height="400" width="400" />
 </p>
 
 ## 项目介绍
