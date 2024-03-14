@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/14 22:15:50
+  最近一次生成时间: 2024/3/15 02:19:16
 </p>
 <p align="center">
-九日黄花才过了，一尊聊慰秋容老。
+九曲黄河万里沙，浪淘风簸自天涯。
 </p>
 <p align="center">
-<<凤栖梧·霜树重重青嶂小>> • 赵可
+<<浪淘沙·九曲黄河万里沙>> • 刘禹锡
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1._EKJg7MABkOESX43IudP" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.LplXxixDI951jzczcS9F" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.xmEv9co8Y2ZdgT.frYl7" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.97Js7OsT0bWGYX2yBzGe" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.oZvImjBCaghADZtu2SE_" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.5NYsbRTyNST1PydEzbGP" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.8FtUIm7ErcO8apjHuhEU" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.th9eliOOP..aJvFpr94q" height="400" width="400" />
 </p>
 
 ## 项目介绍
