@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/15 02:19:16
+  最近一次生成时间: 2024/3/15 04:17:36
 </p>
 <p align="center">
-九曲黄河万里沙，浪淘风簸自天涯。
+中山人予之猫，猫善捕鼠及鸡。
 </p>
 <p align="center">
-<<浪淘沙·九曲黄河万里沙>> • 刘禹锡
+<<乞猫>> • 刘基
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.oZvImjBCaghADZtu2SE_" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.5NYsbRTyNST1PydEzbGP" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.8FtUIm7ErcO8apjHuhEU" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.th9eliOOP..aJvFpr94q" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.B5hsqvlKnvB0jA9yB9IJ" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.O70J6KFClxtNlaUPuZDi" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.Kdx2NcsgVFT7ojjZTJwo" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.UWDjxR5wCKtmfVk06Ddv" height="400" width="400" />
 </p>
 
 ## 项目介绍
