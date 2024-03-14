@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/14 06:14:32
+  最近一次生成时间: 2024/3/14 09:04:36
 </p>
 <p align="center">
-挂席几千里，名山都未逢。
+行多有病住无粮，万里还乡未到乡。
 </p>
 <p align="center">
-<<晚泊浔阳望庐山>> • 孟浩然
+<<逢病军人>> • 卢纶
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.kpDxURs5k_yJvRBYJJNB" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.xi_ywnddhixOeWW7Mmjb" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.nyvUj9YmlmaF6ZunAwf5" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.Vslhte7prZasmGR4Gd6q" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.y20Xj0uxDRp9PXaHbqnC" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.UOfCR2UjmNwVHgksYoIS" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.H.8_c.k6QN6IbaZkAB4i" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.oEu7UZiiwZdj71FZsgou" height="400" width="400" />
 </p>
 
 ## 项目介绍
