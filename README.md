@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/15 04:17:36
+  最近一次生成时间: 2024/3/15 06:13:59
 </p>
 <p align="center">
-中山人予之猫，猫善捕鼠及鸡。
+卷旗夜劫单于帐，乱斫胡儿缺宝刀。
 </p>
 <p align="center">
-<<乞猫>> • 刘基
+<<出塞词>> • 马戴
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.B5hsqvlKnvB0jA9yB9IJ" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.O70J6KFClxtNlaUPuZDi" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.Kdx2NcsgVFT7ojjZTJwo" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.UWDjxR5wCKtmfVk06Ddv" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.IRybmkCh91gpVLEoya9z" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.srzmXzkMTHj6k7JBrOW9" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.JQWoKlK7wTehOpi2R2mB" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.i9reHbcPsBqRf5cfo8uR" height="400" width="400" />
 </p>
 
 ## 项目介绍
