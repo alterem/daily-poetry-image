@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/15 16:18:54
+  最近一次生成时间: 2024/3/15 18:15:10
 </p>
 <p align="center">
-不见襄阳登览，磨灭游人无数，遗恨黯难收。
+东飞乌鹊西飞燕。盈盈一水经年见。
 </p>
 <p align="center">
-<<水调歌头·多景楼>> • 陆游
+<<菩萨蛮·七夕>> • 陈师道
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.deWy4TwxXzd0oIATu2TX" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.xGMrFdkBIFQwqmf037TN" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.i3DOwVu4uc9Usotot0tQ" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.hQvED_OqcFRgpC54brmb" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.x8UUYElTPVFW3Uz4pFWe" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.V9dX5LdR4zCcY.RMEDwz" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.r5.buC_hoIm4jnxl2nXe" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.nvp5SqoZVBmZSjzAVsgR" height="400" width="400" />
 </p>
 
 ## 项目介绍
