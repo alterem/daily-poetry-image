@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/15 18:15:10
+  最近一次生成时间: 2024/3/15 20:27:00
 </p>
 <p align="center">
-东飞乌鹊西飞燕。盈盈一水经年见。
+细草微风岸，危樯独夜舟。
 </p>
 <p align="center">
-<<菩萨蛮·七夕>> • 陈师道
+<<旅夜书怀>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.x8UUYElTPVFW3Uz4pFWe" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.V9dX5LdR4zCcY.RMEDwz" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.r5.buC_hoIm4jnxl2nXe" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.nvp5SqoZVBmZSjzAVsgR" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.0YkkHBiMiPbPcIGjupk0" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.hoN8ABwHupMI0kS5X0V5" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.4.Ezxje9bljHVtIGOU.9" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.AYO5CtHiS1NPG0ZC2PX." height="400" width="400" />
 </p>
 
 ## 项目介绍
