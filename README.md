@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/16 00:20:13
+  最近一次生成时间: 2024/3/16 02:19:57
 </p>
 <p align="center">
-塞马一声嘶，残星拂大旗。
+汉帝重阿娇，贮之黄金屋。
 </p>
 <p align="center">
-<<菩萨蛮·朔风吹散三更雪>> • 纳兰性德
+<<妾薄命>> • 李白
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.JeIBSM1yil_v2YIKosYY" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.JWTE0J4zW6a7auxC0_nr" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.i2cc48fjVPppd9UAz9ZX" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.NAOFBxJrNErdT87Pt.To" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.gFFJV3zH2_1E7fv1X.yx" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.KkKdGwniJSagpLZG7Vcq" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.TcpHPX0a_e7FgUIWQv3d" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.FiKQvCooqHGuPqS9hYKf" height="400" width="400" />
 </p>
 
 ## 项目介绍
