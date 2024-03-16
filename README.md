@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/16 14:17:58
+  最近一次生成时间: 2024/3/16 16:17:22
 </p>
 <p align="center">
-向来吟秀句，不觉已鸣鸦。
+山荒聊可田，钱镈还易办。
 </p>
 <p align="center">
-<<酬程延秋夜即事见赠>> • 韩翃
+<<谪居粮绝请学于农将田南山咏言寄怀>> • 王守仁
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.Blz3b9Zk7jh0_PtayfWe" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.tjVLI7Ez3Qhm2Hke1P9Z" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.FVldNFvGh6JISqzhnUW." height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.MrNSHXQ4o8zxvX7ld17O" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.7ir4.u8dW_KPqiMcP3Gz" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.IlOSG2W61iczPo62tqy9" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.ThsM02piKIAExzvq21Yj" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.rbDhSVCJVi_lRwBuFvWd" height="400" width="400" />
 </p>
 
 ## 项目介绍
