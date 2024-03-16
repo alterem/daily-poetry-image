@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/16 16:17:22
+  最近一次生成时间: 2024/3/16 18:16:12
 </p>
 <p align="center">
-山荒聊可田，钱镈还易办。
+月华今夜黑，全见梨花白。
 </p>
 <p align="center">
-<<谪居粮绝请学于农将田南山咏言寄怀>> • 王守仁
+<<菩萨蛮·水晶帘外娟娟月>> • 杨基
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.7ir4.u8dW_KPqiMcP3Gz" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.IlOSG2W61iczPo62tqy9" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.ThsM02piKIAExzvq21Yj" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.rbDhSVCJVi_lRwBuFvWd" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.HJno5j2jagY059hmgmbz" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.qTYmGUgBcHBPiMCodtsk" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.oTB3ZHUOYinXBJgJMjBl" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.WX4q1NKvJNY5sPx90xew" height="400" width="400" />
 </p>
 
 ## 项目介绍
