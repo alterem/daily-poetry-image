@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/16 18:16:12
+  最近一次生成时间: 2024/3/16 20:27:33
 </p>
 <p align="center">
-月华今夜黑，全见梨花白。
+笑绿鬟邻女，倚窗犹唱，夕阳西下。
 </p>
 <p align="center">
-<<菩萨蛮·水晶帘外娟娟月>> • 杨基
+<<女冠子·元夕>> • 蒋捷
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.HJno5j2jagY059hmgmbz" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.qTYmGUgBcHBPiMCodtsk" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.oTB3ZHUOYinXBJgJMjBl" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.WX4q1NKvJNY5sPx90xew" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.DYuyEaxZK6cfzJIXlc9l" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.ap7Tpo0iblBUNN.eJDjs" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.F8w3RlLP9us1c3yE9Y7R" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.anv5vOLA1nkfPI8DsIsJ" height="400" width="400" />
 </p>
 
 ## 项目介绍
