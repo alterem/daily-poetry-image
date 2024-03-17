@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/17 06:14:07
+  最近一次生成时间: 2024/3/17 09:08:52
 </p>
 <p align="center">
-望阙云遮眼，思乡雨滴心。
+奈南墙冷落，竹烟槐雨。
 </p>
 <p align="center">
-<<阴雨>> • 白居易
+<<惜秋华·七夕前一日送人归盐官>> • 吴文英
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.dCR6m8ANSWzAQSV476AY" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.jr11SDF2Vtx7Z5OIW5A2" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.qltieQ2bjd9wUxdOH90l" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.E5oTYlg5UVWKkGv2Cj4G" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.zAtJDp4Lwg0EF6i6B8l7" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.U22MFD3rJqyU65LvGw4A" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4._KqK57kuXDI5AvJwt4sy" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.c409pMMj_YBZJqcvWpGM" height="400" width="400" />
 </p>
 
 ## 项目介绍
