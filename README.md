@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/18 06:13:28
+  最近一次生成时间: 2024/3/18 10:20:49
 </p>
 <p align="center">
-水榭风微玉枕凉。牙床角簟藕花香。
+中山人予之猫，猫善捕鼠及鸡。
 </p>
 <p align="center">
-<<浣溪沙·书虞元翁书>> • 苏庠
+<<乞猫>> • 刘基
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.bp3Chl9PdKtClkhURtg1" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.4xCNMvWiT47fFyz.8FK2" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.AjyVa_nua3a8vPLqWLCe" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.7cv2qAK2jI.oq907GprQ" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.zRRAqTYkE_PDBEXe9fh6" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.rQxcCsnRh1nhZTyoRqzl" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.uBC_3R_cRE.7iWpwwCzf" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.L.sRY8xDV8xeeAuzLjMn" height="400" width="400" />
 </p>
 
 ## 项目介绍
