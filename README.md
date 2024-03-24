@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/25 04:15:06
+  最近一次生成时间: 2024/3/25 06:15:01
 </p>
 <p align="center">
-不管垂杨珠泪进，滴碎荷声千顷。
+厚禄故人书断绝，恒饥稚子色凄凉。
 </p>
 <p align="center">
-<<清平乐·咏雨>> • 王夫之
+<<狂夫>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.zSE0XPWXRDnXw43MtPBo" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.lMFllnocv4YVB8EMfSeA" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.y2jpz7IvZT0bJGJbFMYB" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.sprm3Qd_YITNSDzktAKR" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.jGdUVj9H7VYvu.BWgVpM" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.d66YFJ2rNwWSGUhepWij" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.dYIWU523oKNy7i1dA1ep" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.aCrDgeYVYMNQWUU2XQYN" height="400" width="400" />
 </p>
 
 ## 项目介绍
