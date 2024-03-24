@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/25 02:20:39
+  最近一次生成时间: 2024/3/25 04:15:06
 </p>
 <p align="center">
-谁问旗亭，美酒斗十千。
+不管垂杨珠泪进，滴碎荷声千顷。
 </p>
 <p align="center">
-<<行路难·缚虎手>> • 贺铸
+<<清平乐·咏雨>> • 王夫之
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.QJb3RkbveUftBEhtj54X" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.kD8LX6wN3BiNwN.vRJBs" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.LjT8Ehn1pi1NgEOGKjmJ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.2SKNFUhJhDS0i6l3ej89" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.zSE0XPWXRDnXw43MtPBo" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.lMFllnocv4YVB8EMfSeA" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.y2jpz7IvZT0bJGJbFMYB" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.sprm3Qd_YITNSDzktAKR" height="400" width="400" />
 </p>
 
 ## 项目介绍
