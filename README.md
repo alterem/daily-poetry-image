@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/24 17:57:04
+  最近一次生成时间: 2024/3/24 18:15:03
 </p>
 <p align="center">
-宝奁明月不欺人，明日归来君试看。
+因依老宿发心初，半学修心半读书。
 </p>
 <p align="center">
-<<玉楼春·春思>> • 严仁
+<<寄旧山僧>> • 王建
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.vAnZnmOekbiywRG6M6nL" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.9OLXlenynk8nee69ltMj" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.GgWFywRgK3aw.lNqPsh1" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3..LOgJUaCF6Be6.ShPHvA" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.HFlG1VR6T0BNe5KcS5F9" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.uUO5uNS0ac2sXmiPjY7O" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.spxXkZ2ObNh11a9g.fPD" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.nNFDbSXJI6HsIY1RqM33" height="400" width="400" />
 </p>
 
 ## 项目介绍
