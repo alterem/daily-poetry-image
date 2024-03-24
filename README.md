@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/25 00:18:18
+  最近一次生成时间: 2024/3/25 02:20:39
 </p>
 <p align="center">
-忆对中秋丹桂丛。花在杯中。月在杯中。
+谁问旗亭，美酒斗十千。
 </p>
 <p align="center">
-<<一剪梅·中秋元月>> • 辛弃疾
+<<行路难·缚虎手>> • 贺铸
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2._qWFXrOe4PTaTgMtOqmT" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.Rw70fjWakfcSTun1QxYb" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.tzOVU2LQpIp6KIa3GOBJ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.jXOZ7CxaIgXuhTDnVzQ2" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.QJb3RkbveUftBEhtj54X" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.kD8LX6wN3BiNwN.vRJBs" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.LjT8Ehn1pi1NgEOGKjmJ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.2SKNFUhJhDS0i6l3ej89" height="400" width="400" />
 </p>
 
 ## 项目介绍
