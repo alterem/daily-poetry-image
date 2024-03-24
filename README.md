@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/24 22:12:42
+  最近一次生成时间: 2024/3/25 00:18:18
 </p>
 <p align="center">
-风柔日薄春犹早。夹衫乍著心情好。
+忆对中秋丹桂丛。花在杯中。月在杯中。
 </p>
 <p align="center">
-<<菩萨蛮·风柔日薄春犹早>> • 李清照
+<<一剪梅·中秋元月>> • 辛弃疾
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.sVHbjqNRVCptTCCVe8xJ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.BcuEW7HBD4NszyafiZ7N" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.T1.Dsc3TmSxSX_3YNQMn" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.V5Bd7ptH0MVRAriDnT1Q" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2._qWFXrOe4PTaTgMtOqmT" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.Rw70fjWakfcSTun1QxYb" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.tzOVU2LQpIp6KIa3GOBJ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.jXOZ7CxaIgXuhTDnVzQ2" height="400" width="400" />
 </p>
 
 ## 项目介绍
