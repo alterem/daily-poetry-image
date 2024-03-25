@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/25 16:20:18
+  最近一次生成时间: 2024/3/25 18:16:13
 </p>
 <p align="center">
-唱罢秋坟愁未歇，春丛认取双栖蝶。
+玲珑骰子安红豆，入骨相思知不知。
 </p>
 <p align="center">
-<<蝶恋花·辛苦最怜天上月>> • 纳兰性德
+<<南歌子词二首 / 新添声杨柳枝词>> • 温庭筠
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.8cma_edomIADvPRwL9q4" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.0X8FRErpTFwo9FaQIWGI" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.DliDzPnGQ2ZmygLiwCWF" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.vIixvPb.mYSSmQz6zZDq" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.bXW0nEtk2BjRicvbMoJv" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.Y8btgaB72brfA6tMtVYJ" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.h_YjPuEdDhWuVS8s6ZRg" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.J6TcSNe2Tr20sOfZ0XAU" height="400" width="400" />
 </p>
 
 ## 项目介绍
