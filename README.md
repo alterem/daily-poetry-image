@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/25 06:15:01
+  最近一次生成时间: 2024/3/25 09:06:56
 </p>
 <p align="center">
-厚禄故人书断绝，恒饥稚子色凄凉。
+新竹高于旧竹枝，全凭老干为扶持。
 </p>
 <p align="center">
-<<狂夫>> • 杜甫
+<<新竹>> • 郑燮
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.jGdUVj9H7VYvu.BWgVpM" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.d66YFJ2rNwWSGUhepWij" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.dYIWU523oKNy7i1dA1ep" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.aCrDgeYVYMNQWUU2XQYN" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.s5kj3v_OAOOePdK2AR0O" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.vX09TuOZCNUVAHUTb1h4" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.brV5NsoPiDHFow61ce2g" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.iFDGAKJJK6GB.Oo4qMS." height="400" width="400" />
 </p>
 
 ## 项目介绍
