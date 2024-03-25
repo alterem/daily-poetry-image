@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/25 20:27:24
+  最近一次生成时间: 2024/3/25 22:14:41
 </p>
 <p align="center">
-叹寄与路遥，夜雪初积。
+虚空落泉千仞直，雷奔入江不暂息。
 </p>
 <p align="center">
-<<暗香疏影>> • 姜夔
+<<庐山瀑布>> • 徐凝
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.4kdnCQF9Px2MkLGlDFrI" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.gfGjBz_uz.hRw1.a1MO4" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.mPlhonO_sVcePGyb35Sl" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.OM_VFRIKsVt4qR1Pn8Hh" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.IniqS1XVnZ6PiHQf8Xj2" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.p.sdl4kj1CzUNWTi5qUw" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.rs9RPudoCqXHtB59nn.N" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.ReYGEHHvvb4HYCFlPyRO" height="400" width="400" />
 </p>
 
 ## 项目介绍
