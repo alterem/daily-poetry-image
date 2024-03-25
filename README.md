@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/25 18:16:13
+  最近一次生成时间: 2024/3/25 20:27:24
 </p>
 <p align="center">
-玲珑骰子安红豆，入骨相思知不知。
+叹寄与路遥，夜雪初积。
 </p>
 <p align="center">
-<<南歌子词二首 / 新添声杨柳枝词>> • 温庭筠
+<<暗香疏影>> • 姜夔
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.bXW0nEtk2BjRicvbMoJv" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.Y8btgaB72brfA6tMtVYJ" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.h_YjPuEdDhWuVS8s6ZRg" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.J6TcSNe2Tr20sOfZ0XAU" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.4kdnCQF9Px2MkLGlDFrI" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.gfGjBz_uz.hRw1.a1MO4" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.mPlhonO_sVcePGyb35Sl" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.OM_VFRIKsVt4qR1Pn8Hh" height="400" width="400" />
 </p>
 
 ## 项目介绍
