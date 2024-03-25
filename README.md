@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/26 02:20:14
+  最近一次生成时间: 2024/3/26 04:16:27
 </p>
 <p align="center">
-浮云游子意，落日故人情。
+来时父母知隔生，重著衣裳如送死。
 </p>
 <p align="center">
-<<送友人>> • 李白
+<<渡辽水>> • 王建
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3._jYUvQoIsKEcr9luYbGd" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.xw38O4Uz3eN9LRJJpLYN" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.UoRLZOjdo64_xBLAw5O4" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.6.NciAbxxVI7mnRGHz4c" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.WuvafikHhzuNqd8SkoGR" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.HjLpF7b1UXZ9GavuHOqR" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.KA16SjKhJejrasuLJDGY" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.Cq2VYAcP8lVrbhCQVq9m" height="400" width="400" />
 </p>
 
 ## 项目介绍
