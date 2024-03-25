@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/26 00:19:45
+  最近一次生成时间: 2024/3/26 02:20:14
 </p>
 <p align="center">
-登高望蓬流，想象金银台。
+浮云游子意，落日故人情。
 </p>
 <p align="center">
-<<游泰山六首>> • 李白
+<<送友人>> • 李白
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.ET17eAXTm7Uz7wmFpUAt" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.Xchzhxw43U.zJckKa5o4" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.69W1rA2bXhcz3MxZd19D" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.BVmu1OgPCniJh_ryRsYT" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3._jYUvQoIsKEcr9luYbGd" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.xw38O4Uz3eN9LRJJpLYN" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.UoRLZOjdo64_xBLAw5O4" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.6.NciAbxxVI7mnRGHz4c" height="400" width="400" />
 </p>
 
 ## 项目介绍
