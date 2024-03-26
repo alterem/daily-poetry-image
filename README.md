@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/26 22:16:55
+  最近一次生成时间: 2024/3/27 00:20:14
 </p>
 <p align="center">
-白马绕旌旗，悲鸣相追攀。
+思尔为雏日，高飞背母时。
 </p>
 <p align="center">
-<<豫章行>> • 李白
+<<燕诗示刘叟>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.wY_NRFjKstQiKK_7LPg5" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.mtBov4JoB.ig6gIZpohU" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.O9DrbBq3KC7fUyuExVs1" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.Cg693DOC0MDCzGPycXM9" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.sdEAeK8YEeY7VeMeang1" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4..QBVY0OckIc0CZPMu0PF" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.E8vB6D5Ozj6lHxs9BD7I" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.y9e532KXHNCG.urtiPAw" height="400" width="400" />
 </p>
 
 ## 项目介绍
