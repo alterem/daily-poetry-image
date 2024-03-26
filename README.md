@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/26 20:28:33
+  最近一次生成时间: 2024/3/26 22:16:55
 </p>
 <p align="center">
-闲来无事不从容，睡觉东窗日已红。
+白马绕旌旗，悲鸣相追攀。
 </p>
 <p align="center">
-<<秋日>> • 程颢
+<<豫章行>> • 李白
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.AIN9P5zy6QrGVHxEtTN." height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.xsgPXHtaiH_cr8773ulj" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.YinEwDfsiqI1OFAx3pwT" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.89Uqm4yoGY.hxUJiey7n" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.wY_NRFjKstQiKK_7LPg5" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.mtBov4JoB.ig6gIZpohU" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.O9DrbBq3KC7fUyuExVs1" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.Cg693DOC0MDCzGPycXM9" height="400" width="400" />
 </p>
 
 ## 项目介绍
