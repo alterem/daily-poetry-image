@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/30 04:16:37
+  最近一次生成时间: 2024/3/30 06:14:34
 </p>
 <p align="center">
-君自故乡来，应知故乡事。
+相顾无言，惟有泪千行。
 </p>
 <p align="center">
-<<杂诗三首·其二>> • 王维
+<<江城子·乙卯正月二十日夜记梦>> • 苏轼
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.m.2..HJ5s.fG4PXoiB_q" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.LsK7YHSzxPy1ovRsJdI0" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.DLZz3vfC9rptYo7MDgsZ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.c8E6wycbFhygaQAjQCki" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.cxAbzEZtVIbrKauVErWL" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.kaNh_XU_a89kdxDTgUYH" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.Z69x92GOFKX1RLp4Sk7Z" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.lT9UI4UoUFnAP9mbJTDz" height="400" width="400" />
 </p>
 
 ## 项目介绍
