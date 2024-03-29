@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/29 22:13:35
+  最近一次生成时间: 2024/3/30 00:19:10
 </p>
 <p align="center">
-荷叶罗裙一色裁，芙蓉向脸两边开。
+浮云终日行，游子久不至。
 </p>
 <p align="center">
-<<采莲曲>> • 王昌龄
+<<梦李白二首·其二>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.3cjYWDwmrM4v1EpzrUHy" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.GwT9WvvgtsYRH1PFO7Gp" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.A6B9B3XZrKVNR9G5dvht" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.nPIGtSX_93uu2Nj3gaS9" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.QMPTEYrwS1ydXdJaIPMI" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.VF4ANtY25IkxKI_zaPuW" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.2kJfF5Q_4LvJgf_iAd9O" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.R1ID8rSsOSYgweR7HZI3" height="400" width="400" />
 </p>
 
 ## 项目介绍
