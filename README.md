@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/30 20:25:02
+  最近一次生成时间: 2024/3/30 22:12:21
 </p>
 <p align="center">
-遇酒且呵呵，人生能几何！
+登高望蓬流，想象金银台。
 </p>
 <p align="center">
-<<菩萨蛮·劝君今夜须沈醉>> • 韦庄
+<<游泰山六首>> • 李白
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.mC6gmTVkKCVhuN1E_IHI" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.ionvyY_mccklq7gpxpdJ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.1iiBeylqJZNVlpg4FOBm" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.HjQDUtJgNRbzb5iUaIfF" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.KoGZhYDL1K0AgY9EfQH6" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.lFo_rdE4wMoDGK3xE0C2" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.lQKy1mmcQo1cvApaCnaW" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.Y1Y2xkYLtWKZzDdTENRf" height="400" width="400" />
 </p>
 
 ## 项目介绍
