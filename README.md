@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/31 00:18:42
+  最近一次生成时间: 2024/3/31 02:19:29
 </p>
 <p align="center">
-筑室兮水中，葺之兮荷盖；
+我闭南楼看道书，幽帘清寂在仙居。
 </p>
 <p align="center">
-<<九歌·湘夫人>> • 屈原
+<<早秋单父南楼酬窦公衡>> • 李白
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.A54WWj4ASNvF.Can9pFQ" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.xnPp2JA5gka0mbh1DQOo" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.x9Xw16D5LujGDZ6NhnZ5" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.hD_U7y9lKEIDedPkuOFs" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.JiGGryvDjMQM1QYU9qnY" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.gq_ZlEEQ7QBeAGNI1rHj" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.RGeYz70rRr.uSOxDW8oe" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.LCfSlDjMI2bnD4HZDG_7" height="400" width="400" />
 </p>
 
 ## 项目介绍
