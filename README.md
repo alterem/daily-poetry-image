@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/31 16:19:02
+  最近一次生成时间: 2024/3/31 18:15:16
 </p>
 <p align="center">
-壮志饥餐胡虏肉，笑谈渴饮匈奴血。
+横笛闻声不见人，红旗直上天山雪。
 </p>
 <p align="center">
-<<满江红·写怀>> • 岳飞
+<<从军行>> • 陈羽
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.fuTISBYnk262qGZY8xV6" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.L3EzgFsl4RVPD_T.6xG." height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.XdZAxLTaSVZ5eRlhX0.U" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.te1lwOoWYjsNuW3c9DOI" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.ftc0ocovA_y4dOJoxgxM" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.RXYNUVNXpQGuUdaB2lVb" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.kdlC6CZCs1pXW3qzoqA9" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.tgmFZzNxMQgA.TSENnLR" height="400" width="400" />
 </p>
 
 ## 项目介绍
