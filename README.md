@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/3/31 10:24:28
+  最近一次生成时间: 2024/3/31 12:19:50
 </p>
 <p align="center">
-浊酒一杯家万里，燕然未勒归无计。
+惜恐镜中春。不如花草新。
 </p>
 <p align="center">
-<<渔家傲·秋思>> • 范仲淹
+<<菩萨蛮·忆郎还上层楼曲>> • 张先
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.wumN9H0TO4oPqf4FzNMZ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.P4fgqQb6nGHX2zEo2TUp" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.9wsZbijtWJhdBkSyuE04" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.YIgxtwh0wwdnl4ig8FJ5" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.EUnyDIunyDuYq_Vx26K4" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.0GT0lzX2jQ3I.9CAn1d3" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.eeFuqG.hQ9aYdAIy1cKn" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.wwjWSWqEY2dFAyDYYsQT" height="400" width="400" />
 </p>
 
 ## 项目介绍
