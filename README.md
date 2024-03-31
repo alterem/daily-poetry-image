@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/1 04:15:46
+  最近一次生成时间: 2024/4/1 06:14:10
 </p>
 <p align="center">
-终罢斯结庐，慕陶直可庶。
+晴云轻漾，熏风无浪，开樽避暑争相向。
 </p>
 <p align="center">
-<<东郊>> • 韦应物
+<<西湖杂咏·夏>> • 薛昂夫
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.THDRnHoJ0.IOjIrTGmGJ" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.js0oSctShD1dlZJTpeF4" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.pkdCjGhVV82U4p9SZ0B9" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.AFE_tRXsgZlrcVecBvOX" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.9xTT.Sh.JMJD56HQwDw." height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.5Js93SyokxbRt4OCk6q." height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.i1R6Ps6a6Nk96m5ReRUI" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.ZFJWelOmYuz1FgQapjtn" height="400" width="400" />
 </p>
 
 ## 项目介绍
