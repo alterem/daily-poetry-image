@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/2 04:16:53
+  最近一次生成时间: 2024/4/2 06:14:55
 </p>
 <p align="center">
-爱子心无尽，归家喜及辰。
+庐山秀出南斗傍，屏风九叠云锦张。
 </p>
 <p align="center">
-<<岁暮到家>> • 蒋士铨
+<<庐山谣寄卢侍御虚舟>> • 李白
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.rjYk6rJqy3BjHtc1mIPg" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.dxXnNMRza2xXJQLQuVxY" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.wuLKKarxq89YI6Q3lpw." height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.OZzHs9yRcJAJl9Fn.TjI" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.It3Vd1cJzDep3wDT3mb7" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.COy9ruTLrrqiii0hDhim" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.O1mOOpomi32rVhphi_bU" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.sdscBzvbeP1KVj7VUCHB" height="400" width="400" />
 </p>
 
 ## 项目介绍
