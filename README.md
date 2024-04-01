@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/1 22:14:36
+  最近一次生成时间: 2024/4/2 00:20:27
 </p>
 <p align="center">
-满月飞明镜，归心折大刀。
+云想衣裳花想容，春风拂槛露华浓。
 </p>
 <p align="center">
-<<八月十五夜月二首>> • 杜甫
+<<清平调·其一>> • 李白
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.Z0ww7cW_CMmvtfQRQMac" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.qapMhKEt_l4y4A_AiXIh" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.fXcr6vv3Ljlh5o1vdxMS" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.vAzMR4JiBBifgxmEUMOx" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.VWiA_Qvc9Ligw.MtrNZN" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.V_ZBLjH3b3ukd0mWIOkr" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.c07ftSn9URQl7Ghsw6ho" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.dGZwPeX2gVkRnNJhMLwU" height="400" width="400" />
 </p>
 
 ## 项目介绍
