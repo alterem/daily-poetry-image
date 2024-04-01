@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/1 14:20:09
+  最近一次生成时间: 2024/4/1 16:20:54
 </p>
 <p align="center">
-明月别枝惊鹊，清风半夜鸣蝉。
+黄叶覆溪桥，荒村唯古木。
 </p>
 <p align="center">
-<<西江月·夜行黄沙道中>> • 辛弃疾
+<<秋晓行南谷经荒村>> • 柳宗元
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.7GRRT_vWcQK8seNM_Suc" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.OS7P4HgokZndJrlCI_k2" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.Dnp7S6CKb4dPbK.cMjKS" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.Tbu1sQCYeL9_qCbBf3jZ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.X3tW_BnaDwc5Pqjm3cd8" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.ohx5WQcxow9YstlhJRs9" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.2Ku5tfiDhR2.gR6IyY8z" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.9iDhbRr6Iio7.8shl42k" height="400" width="400" />
 </p>
 
 ## 项目介绍
