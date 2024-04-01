@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/1 12:18:44
+  最近一次生成时间: 2024/4/1 14:20:09
 </p>
 <p align="center">
-漱冰濯雪，眇视万里一毫端。
+明月别枝惊鹊，清风半夜鸣蝉。
 </p>
 <p align="center">
-<<水调歌头·金山观月>> • 张孝祥
+<<西江月·夜行黄沙道中>> • 辛弃疾
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.Nuc00OWgXVEgC8t0bo9c" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.IWXxCSZQtIv.3sRrUVi7" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.3GonSAPfndth4dYWqNpC" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.zye9iBMEEwIElzrAh77Q" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.7GRRT_vWcQK8seNM_Suc" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.OS7P4HgokZndJrlCI_k2" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.Dnp7S6CKb4dPbK.cMjKS" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.Tbu1sQCYeL9_qCbBf3jZ" height="400" width="400" />
 </p>
 
 ## 项目介绍
