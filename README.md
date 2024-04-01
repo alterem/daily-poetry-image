@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/1 10:29:07
+  最近一次生成时间: 2024/4/1 12:18:44
 </p>
 <p align="center">
-昨夜东风入武阳，陌头杨柳黄金色。
+漱冰濯雪，眇视万里一毫端。
 </p>
 <p align="center">
-<<早春寄王汉阳>> • 李白
+<<水调歌头·金山观月>> • 张孝祥
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.6y7bg83.p01KErvvwTqC" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.j4fq8bS7MlhJVDj3Ti8k" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.If_amtljJTDXeTRoX0MR" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.S1UiK3cZLAurookdYHfM" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.Nuc00OWgXVEgC8t0bo9c" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.IWXxCSZQtIv.3sRrUVi7" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.3GonSAPfndth4dYWqNpC" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.zye9iBMEEwIElzrAh77Q" height="400" width="400" />
 </p>
 
 ## 项目介绍
