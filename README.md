@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/1 18:17:03
+  最近一次生成时间: 2024/4/1 20:30:06
 </p>
 <p align="center">
-苦心岂免容蝼蚁，香叶终经宿鸾凤。
+平生多感激，忠义非外奖。
 </p>
 <p align="center">
-<<古柏行>> • 杜甫
+<<酬裴侍御对雨感时见赠>> • 李白
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.JgYQThhdF.pbryM3JXFZ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.1CZZbkJwff176RjTQT72" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.bh88HGc8DammDESXTEAB" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.GhOqRC0AcahqYMhB5_Dj" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.salsK6eeWlZJ82YwN7IX" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.Bji26I_pkCF7dlolvurc" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.S2cXPLhiclFnD6.wBJd9" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.5UFmPge.Z0xsgf7tIT.j" height="400" width="400" />
 </p>
 
 ## 项目介绍
