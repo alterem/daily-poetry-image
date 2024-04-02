@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/2 09:10:58
+  最近一次生成时间: 2024/4/2 10:24:44
 </p>
 <p align="center">
-玉人初上木兰时。懒妆斜立澹春姿。
+荒烟凉雨助人悲，泪染衣襟不自知。
 </p>
 <p align="center">
-<<浣溪沙·题李中斋舟中梅屏>> • 吴文英
+<<送和甫至龙安微雨>> • 王安石
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.3X.bCLnYwzeBSpfyJJzY" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.SrzUDYmYOCcXYNtyIMPC" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.t9dWtVy1j86BLigj40AM" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.uLoFDub1la08vRaZVsgr" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.DGkFdjuwRURdhG.NhUz1" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.VZoEbuTlp4xLhV0kq6c9" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.z2aDqi.F0G3K_dS312Ol" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.ZJ5EzJ9E8xSZC5qYUKPq" height="400" width="400" />
 </p>
 
 ## 项目介绍
