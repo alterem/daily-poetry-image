@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/3 04:15:58
+  最近一次生成时间: 2024/4/3 06:16:52
 </p>
 <p align="center">
-君若清路尘，妾若浊水泥；
+信宿渔人还泛泛，清秋燕子故飞飞。
 </p>
 <p align="center">
-<<明月上高楼>> • 曹植
+<<秋兴八首>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.JQMqCPMQuBzwTkSonKnW" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.xLlTjfXeqW5nmZaWTX9W" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.fTZJurE1VvmHBABQsTII" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.G_A6NBzHaGKawEfE9ue8" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.nFKWmjFy7WrnbOAxKdux" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.ciseYCENQU57Cw.bDHY_" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.M3F7ezd39KuhbnCwomwA" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.EMRIXwxKYDlcs9qaEafa" height="400" width="400" />
 </p>
 
 ## 项目介绍
