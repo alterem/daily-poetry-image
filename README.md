@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/2 18:17:12
+  最近一次生成时间: 2024/4/2 20:29:01
 </p>
 <p align="center">
-泥落画梁空，梦想青春语。
+若对黄花孤负酒，怕黄花、也笑人岑寂。
 </p>
 <p align="center">
-<<生查子·秋社>> • 吴文英
+<<贺新郎·九日>> • 刘克庄
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.bcp_pLgcOKpwLEZyJ9XQ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1..r4afXSy1KbxDLXi8Mp_" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.vtqo.MQjZGiCSGb_duEw" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.Og92IsymrqqlxSm.yMVE" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.AoCjsNMyR_IFk9FUu_OF" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.h1N1lV.EzpxmLq5f2EG8" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.elxjq9Us9oDewoanAkyl" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2..0vflDzCQy167q1XcrKI" height="400" width="400" />
 </p>
 
 ## 项目介绍
