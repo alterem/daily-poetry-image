@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/3 00:20:33
+  最近一次生成时间: 2024/4/3 04:15:58
 </p>
 <p align="center">
-开荒南野际，守拙归园田。
+君若清路尘，妾若浊水泥；
 </p>
 <p align="center">
-<<归园田居·其一>> • 陶渊明
+<<明月上高楼>> • 曹植
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.HTLXJ3Qr9xdYd_1Wz8Uy" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3..GHZDIBY8cWZkeDmdm18" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.7O2MH6MUDJCTY9mKHDii" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.0dPJ00lGVkstiJQROzuZ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.JQMqCPMQuBzwTkSonKnW" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.xLlTjfXeqW5nmZaWTX9W" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.fTZJurE1VvmHBABQsTII" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.G_A6NBzHaGKawEfE9ue8" height="400" width="400" />
 </p>
 
 ## 项目介绍
