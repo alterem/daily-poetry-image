@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/2 16:19:06
+  最近一次生成时间: 2024/4/2 18:17:12
 </p>
 <p align="center">
-长江一帆远，落日五湖春。
+泥落画梁空，梦想青春语。
 </p>
 <p align="center">
-<<饯别王十一南游>> • 刘长卿
+<<生查子·秋社>> • 吴文英
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.d0Bw_K4o3xUOpQ2JcYEv" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.YEcVgYwa9vL5bUb4nnEm" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.8N0Oenp2nCqsR7MLe7q." height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.cA9f0B9wHQA9c53gqpaX" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.bcp_pLgcOKpwLEZyJ9XQ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1..r4afXSy1KbxDLXi8Mp_" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.vtqo.MQjZGiCSGb_duEw" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.Og92IsymrqqlxSm.yMVE" height="400" width="400" />
 </p>
 
 ## 项目介绍
