@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/3 12:18:36
+  最近一次生成时间: 2024/4/3 14:19:17
 </p>
 <p align="center">
-牛羊自归村巷，童稚不识衣冠。
+耕犁千亩实千箱，力尽筋疲谁复伤？
 </p>
 <p align="center">
-<<田园乐七首·其四>> • 王维
+<<病牛>> • 李纲
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.J_qg9ap2jmkTc1wegsLG" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.7JlOf4XOK3GZ3FDTvSyX" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.ecBd2X981adq0BxchHfI" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.T7u1q6vP6j7ykV4yPc3l" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.oxIphb1uiwN03.wP0Siv" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.4bwy0dSGUIz5GIqauw8G" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.YKRSE18D52_umNXCjxsP" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.imdy4M6EkGlJ7WzNiTDh" height="400" width="400" />
 </p>
 
 ## 项目介绍
