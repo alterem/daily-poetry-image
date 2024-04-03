@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/3 22:14:38
+  最近一次生成时间: 2024/4/4 00:19:21
 </p>
 <p align="center">
-君歌杨叛儿，妾劝新丰酒。
+造化钟神秀，阴阳割昏晓。
 </p>
 <p align="center">
-<<杨叛儿>> • 李白
+<<望岳>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1._PiqdUq4jarR3B65a4TQ" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.9P1dYPOTNk6dt86qGiWb" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.yEpA4Ry.nS9Z47.S3cNa" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.KCD9HxWQXqfH.fdLcByP" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.V9DbAptCpzukhqHELRMb" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.ds0aguOHYG7PzzlDq1Aq" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.4BY7K_wbsu1yD0m5104n" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.QcFGaS0V90TSyo5w5.b1" height="400" width="400" />
 </p>
 
 ## 项目介绍
