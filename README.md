@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/4 04:17:29
+  最近一次生成时间: 2024/4/4 06:13:52
 </p>
 <p align="center">
-泰山嵯峨夏云在，疑是白波涨东海。
+惆怅南朝事，长江独至今。
 </p>
 <p align="center">
-<<早秋单父南楼酬窦公衡>> • 李白
+<<秋日登吴公台上寺远眺>> • 刘长卿
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.2Qvma4JB1Kxw4JV35q8C" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.IrpXvNPpQkYlI3NTR7_Y" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.oiUQ0J.tOkqb4KUbfjok" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.JyDBu58nLrVkYS6k1Gmk" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.KuB6WrNETz5spMfeyCFL" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.fiLslOKYc2oAyUV6vjQ8" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.yKiuvPaqbA.vv3UtIAT2" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.IDr.lpC16n2..Csy0pSU" height="400" width="400" />
 </p>
 
 ## 项目介绍
