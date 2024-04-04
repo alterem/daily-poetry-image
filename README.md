@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/5 04:16:08
+  最近一次生成时间: 2024/4/5 06:13:34
 </p>
 <p align="center">
-粽包分两髻，艾束著危冠。
+僵卧孤村不自哀，尚思为国戍轮台。
 </p>
 <p align="center">
-<<乙卯重五诗>> • 陆游
+<<十一月四日风雨大作>> • 陆游
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.KtUK6WtsRnUzaHF3lBjn" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.822_Mst3yN.b3nyGcgvR" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.umYglNHXCLA3.mZkH4zL" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.ZYIiL8nYz1LF8AaDL38f" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.sJ2FUXO99eVwFwLFEkG_" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.0sXmcLIOFtZNle7HZK26" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.jdMdtpDz282NxLMBEmy7" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.Pk.mij_NRTy6lbWpa.h." height="400" width="400" />
 </p>
 
 ## 项目介绍
