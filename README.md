@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/4 20:28:12
+  最近一次生成时间: 2024/4/4 22:16:04
 </p>
 <p align="center">
-败荷零落，衰杨掩映，岸边两两三三，浣沙游女。
+人生有情泪沾臆，江水江花岂终极！
 </p>
 <p align="center">
-<<夜半乐·冻云黯淡天气>> • 柳永
+<<哀江头>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.QTdUmFV1aPLpQmdPSuDn" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.4hWkVC9jpq04Ctasml3p" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.GMoqcfg4k.aCtl8.W6Vn" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.8uvdPq98lLYnv1NbZIjj" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.6siwG3Tu.gwzlHE6PCFv" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.N8yoeQmY4nZqkSuvSLSX" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.wpr8vz0fNTl8KIhEeL0Z" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.4W9W.hyXXldYfcQwL_Jn" height="400" width="400" />
 </p>
 
 ## 项目介绍
