@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/5 14:19:28
+  最近一次生成时间: 2024/4/5 18:17:28
 </p>
 <p align="center">
-蓼岸荻花中，隐映竹篱茅舍。
+别裁伪体亲风雅，转益多师是汝师。
 </p>
 <p align="center">
-<<离亭燕·一带江山如画>> • 张昪
+<<戏为六绝句>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.V_iD_e2KCcCDHmJLRHL0" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.hQhrqR3p3iMF8RBRzr1_" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.dQ18KtpuRF3mHbQjj6IN" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.v6DqEl3HiRH70Ip2NcVK" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.YKzV.jVeO1dmTFHpopKG" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.UcwwnIdRTNaBSOAHndhF" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.4sKTPPAT69eJ0XkJtrxI" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.kA5r.Z.Bd3PslGIcOnUX" height="400" width="400" />
 </p>
 
 ## 项目介绍
