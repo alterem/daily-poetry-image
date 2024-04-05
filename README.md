@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/5 18:17:28
+  最近一次生成时间: 2024/4/5 20:27:17
 </p>
 <p align="center">
-别裁伪体亲风雅，转益多师是汝师。
+新竹高于旧竹枝，全凭老干为扶持。
 </p>
 <p align="center">
-<<戏为六绝句>> • 杜甫
+<<新竹>> • 郑燮
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.YKzV.jVeO1dmTFHpopKG" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.UcwwnIdRTNaBSOAHndhF" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.4sKTPPAT69eJ0XkJtrxI" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.kA5r.Z.Bd3PslGIcOnUX" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.ZtS00dtg5wxNDfPako5x" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.o5fjExTWBaSmw0Yn5ziN" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.4jk69g9RoH8sx3uoQBxg" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.HOkE93bD97r1oYoCrpl6" height="400" width="400" />
 </p>
 
 ## 项目介绍
