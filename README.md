@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/5 20:27:17
+  最近一次生成时间: 2024/4/5 22:16:44
 </p>
 <p align="center">
-新竹高于旧竹枝，全凭老干为扶持。
+他乡共酌金花酒，万里同悲鸿雁天。
 </p>
 <p align="center">
-<<新竹>> • 郑燮
+<<九月九日玄武山旅眺>> • 卢照邻
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.ZtS00dtg5wxNDfPako5x" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.o5fjExTWBaSmw0Yn5ziN" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.4jk69g9RoH8sx3uoQBxg" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.HOkE93bD97r1oYoCrpl6" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.Z8dKCtZGL2PNXU.NOiYC" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.KheNYvRGr1M2WtiEXPo." height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.5MittfQnMhTP7DZ7shlL" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.vK9E4_oz_umHKGnzPkgc" height="400" width="400" />
 </p>
 
 ## 项目介绍
