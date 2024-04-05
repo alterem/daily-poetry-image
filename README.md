@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/5 22:16:44
+  最近一次生成时间: 2024/4/6 02:19:12
 </p>
 <p align="center">
-他乡共酌金花酒，万里同悲鸿雁天。
+山际见来烟，竹中窥落日。
 </p>
 <p align="center">
-<<九月九日玄武山旅眺>> • 卢照邻
+<<山中杂诗>> • 吴均
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.Z8dKCtZGL2PNXU.NOiYC" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.KheNYvRGr1M2WtiEXPo." height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.5MittfQnMhTP7DZ7shlL" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.vK9E4_oz_umHKGnzPkgc" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.mEa5Ipmq09k7BxkPuNPu" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.BBTlJPxLVZ76ZBmhmrzU" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.1Y6aI7wRe7f_RKVMx8nd" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.ugyYz8JjIgr87za7c2WA" height="400" width="400" />
 </p>
 
 ## 项目介绍
