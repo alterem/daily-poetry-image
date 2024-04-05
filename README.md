@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/5 09:06:10
+  最近一次生成时间: 2024/4/5 10:21:54
 </p>
 <p align="center">
-桃花一簇开无主，可爱深红爱浅红。
+妆罢低声问夫婿，画眉深浅入时无。
 </p>
 <p align="center">
-<<江畔独步寻花·其五>> • 杜甫
+<<近试上张籍水部 / 近试上张水部 / 闺意献张水部>> • 朱庆馀
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.VYK.DOcN.dDfjLLTK9Vx" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.NeaCv3SRuFkQ5VDf7big" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.OwxruF6a2JOj76_drPkw" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.S4MJh7p9jv3d_hudDs1n" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.pSO0DvJdXUTc.b.U5D5t" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.aVq3YXy_UZvCM8lXYf_n" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.jJ6I1B7BkZR8dc4hgjYh" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.VxO1MW8kKahRk0087rFR" height="400" width="400" />
 </p>
 
 ## 项目介绍
