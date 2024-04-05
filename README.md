@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/6 02:19:12
+  最近一次生成时间: 2024/4/6 04:16:07
 </p>
 <p align="center">
-山际见来烟，竹中窥落日。
+胸中有誓深于海，肯使神州竟陆沉？
 </p>
 <p align="center">
-<<山中杂诗>> • 吴均
+<<二砺>> • 郑思肖
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.mEa5Ipmq09k7BxkPuNPu" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.BBTlJPxLVZ76ZBmhmrzU" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.1Y6aI7wRe7f_RKVMx8nd" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.ugyYz8JjIgr87za7c2WA" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.LA1Lg7cvAjUcOyAGZCq5" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.kDBBDdP.QoWrYObmXave" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.U1ItRTp5gXyuQbKLBGQe" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.f_2eh1rxxUyrr_5sdz0I" height="400" width="400" />
 </p>
 
 ## 项目介绍
