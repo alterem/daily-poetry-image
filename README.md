@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/5 06:13:34
+  最近一次生成时间: 2024/4/5 09:06:10
 </p>
 <p align="center">
-僵卧孤村不自哀，尚思为国戍轮台。
+桃花一簇开无主，可爱深红爱浅红。
 </p>
 <p align="center">
-<<十一月四日风雨大作>> • 陆游
+<<江畔独步寻花·其五>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.sJ2FUXO99eVwFwLFEkG_" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.0sXmcLIOFtZNle7HZK26" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.jdMdtpDz282NxLMBEmy7" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.Pk.mij_NRTy6lbWpa.h." height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.VYK.DOcN.dDfjLLTK9Vx" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.NeaCv3SRuFkQ5VDf7big" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.OwxruF6a2JOj76_drPkw" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.S4MJh7p9jv3d_hudDs1n" height="400" width="400" />
 </p>
 
 ## 项目介绍
