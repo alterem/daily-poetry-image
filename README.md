@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/6 22:12:34
+  最近一次生成时间: 2024/4/7 00:19:46
 </p>
 <p align="center">
-桃花春水渌，水上鸳鸯浴。
+卧龙跃马终黄土，人事音书漫寂寥。
 </p>
 <p align="center">
-<<菩萨蛮>> • 韦庄
+<<阁夜>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.p1aHllhUMWYTES_dCHmg" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.KTPxZnFPzGOlJHjuEisn" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.6j1qk6eb92ChagScJd7i" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.RohPzkp4CZTRTAnn7bmM" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.Xf3yu.wsp0XrFx3cV53b" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.kZ5sRqJaRK2vdicOsJsP" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.e4PnxjDKmZsdp_mT31CP" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.igHZT0cyqrEGXjPNGYNN" height="400" width="400" />
 </p>
 
 ## 项目介绍
