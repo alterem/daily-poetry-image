@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/6 14:19:05
+  最近一次生成时间: 2024/4/6 18:15:35
 </p>
 <p align="center">
-香炉初上日，瀑水喷成虹。
+种竹淇园远致君，生平孤节负辛勤。
 </p>
 <p align="center">
-<<彭蠡湖中望庐山>> • 孟浩然
+<<咏归堂隐鳞洞>> • 王汝舟
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.c4jhLfoxLWQwIy6hLZSa" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.ddXwEpsDkNA3u2rY438_" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.AA1TFtqArZINL2FlYW8G" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.qwjcVatazO8TIogRm0Al" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.9RFUsQrLGltcCOGsGPD." height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.lJc6PEm.Cn0rh2UrSm5k" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.KSefR26EFGc_jRhDFTSI" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.fYzBp_Y6Q91qChkN_3Y2" height="400" width="400" />
 </p>
 
 ## 项目介绍
