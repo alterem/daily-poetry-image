@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/6 20:26:15
+  最近一次生成时间: 2024/4/6 22:12:34
 </p>
 <p align="center">
-东风力，快将云雁高送。
+桃花春水渌，水上鸳鸯浴。
 </p>
 <p align="center">
-<<宴清都·送马林屋赴南宫分韵得动字>> • 吴文英
+<<菩萨蛮>> • 韦庄
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.zrFXn9uQeSibqvkaJ04H" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.5FjQ4ECaUcaYRXgZZlzI" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.u1_Vhw9K0S_mZiGL.Eub" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.CKFxB46u4BhYcshuZuhi" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.p1aHllhUMWYTES_dCHmg" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.KTPxZnFPzGOlJHjuEisn" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.6j1qk6eb92ChagScJd7i" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.RohPzkp4CZTRTAnn7bmM" height="400" width="400" />
 </p>
 
 ## 项目介绍
