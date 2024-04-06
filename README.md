@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/7 00:19:46
+  最近一次生成时间: 2024/4/7 02:18:15
 </p>
 <p align="center">
-卧龙跃马终黄土，人事音书漫寂寥。
+唤起封姨清晚景，更将荔子荐新圆。
 </p>
 <p align="center">
-<<阁夜>> • 杜甫
+<<浣溪沙·中秋坐上十八客>> • 张孝祥
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.Xf3yu.wsp0XrFx3cV53b" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.kZ5sRqJaRK2vdicOsJsP" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.e4PnxjDKmZsdp_mT31CP" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.igHZT0cyqrEGXjPNGYNN" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.BRqCf6SD4s__GPcP6BRk" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.F5MAVv5pjjweb.gFcw4K" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.hmMizGuLj4jmEP97VgbG" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.lUZOBdnKJo8m3SfyAr63" height="400" width="400" />
 </p>
 
 ## 项目介绍
