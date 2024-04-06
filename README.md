@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/6 12:18:56
+  最近一次生成时间: 2024/4/6 14:19:05
 </p>
 <p align="center">
-碧水浩浩云茫茫，美人不来空断肠。
+香炉初上日，瀑水喷成虹。
 </p>
 <p align="center">
-<<早春寄王汉阳>> • 李白
+<<彭蠡湖中望庐山>> • 孟浩然
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.1dXRUTuGATIqD3EoBzp0" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.vv0RIY0G3WGDtxtu.U62" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.X6Txbcm8JDr5nbWGXH.j" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.WxxI29cvxlgBjO6ATlek" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.c4jhLfoxLWQwIy6hLZSa" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.ddXwEpsDkNA3u2rY438_" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.AA1TFtqArZINL2FlYW8G" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.qwjcVatazO8TIogRm0Al" height="400" width="400" />
 </p>
 
 ## 项目介绍
