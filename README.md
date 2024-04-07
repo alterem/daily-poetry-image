@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/7 14:18:03
+  最近一次生成时间: 2024/4/7 16:19:50
 </p>
 <p align="center">
-江南几度梅花发，人在天涯鬓已斑。
+辛勤三十日，母瘦雏渐肥。
 </p>
 <p align="center">
-<<鹧鸪天·雪照山城玉指寒>> • 刘著
+<<燕诗示刘叟>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.Xk4OTezTc3Sqx4b2XwoR" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.tEDuBCuirhykBvVONRrd" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.ntGxqmzzYq94Qe_vTJmu" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.ZXB9Pl_JRPkRKrTqwdem" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.MnYtUwTpxRDXx72IriwW" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.Fmb2UCN6Bseq9NRhDk0B" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.Nv2yzlTqxzQLSaiz.e2Y" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.w3OlvkOThsjshJXm_las" height="400" width="400" />
 </p>
 
 ## 项目介绍
