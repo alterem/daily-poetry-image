@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/7 12:19:36
+  最近一次生成时间: 2024/4/7 14:18:03
 </p>
 <p align="center">
-风鸣两岸叶，月照一孤舟。
+江南几度梅花发，人在天涯鬓已斑。
 </p>
 <p align="center">
-<<宿桐庐江寄广陵旧游>> • 孟浩然
+<<鹧鸪天·雪照山城玉指寒>> • 刘著
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.5InI9zVXv9lJJSepwmg3" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.21uvFqXPWMo_V.jQhVoH" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.IsQ20GuRdHInmjpdjmx0" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.9RySXWVcj09cxJjZ.kQl" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.Xk4OTezTc3Sqx4b2XwoR" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.tEDuBCuirhykBvVONRrd" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.ntGxqmzzYq94Qe_vTJmu" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.ZXB9Pl_JRPkRKrTqwdem" height="400" width="400" />
 </p>
 
 ## 项目介绍
