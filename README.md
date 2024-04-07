@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/7 10:24:57
+  最近一次生成时间: 2024/4/7 12:19:36
 </p>
 <p align="center">
-意内称长短，终身荷圣情。
+风鸣两岸叶，月照一孤舟。
 </p>
 <p align="center">
-<<端午日赐衣>> • 杜甫
+<<宿桐庐江寄广陵旧游>> • 孟浩然
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.iuQVrGJEy8zoiCPnEs.6" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.CKcif4ePEVfQa4b0pRVw" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.eXUUB4BGpxhTaIMwyGuV" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.N8ZD4F9R_4m_lCRsGsJC" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.5InI9zVXv9lJJSepwmg3" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.21uvFqXPWMo_V.jQhVoH" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.IsQ20GuRdHInmjpdjmx0" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.9RySXWVcj09cxJjZ.kQl" height="400" width="400" />
 </p>
 
 ## 项目介绍
