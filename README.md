@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/11 00:21:33
+  最近一次生成时间: 2024/4/11 02:21:02
 </p>
 <p align="center">
-王师北定中原日，家祭无忘告乃翁。
+朝辞白帝彩云间，千里江陵一日还。
 </p>
 <p align="center">
-<<示儿>> • 陆游
+<<早发白帝城 / 白帝下江陵>> • 李白
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.cqVaxHbAorimrRcYPDU9" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.MVuuMrlzSO2I2fTtYbLf" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.diuTjDY6VA8vkPMdG1P_" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.lA2xckC5S1ye6SQQZNfd" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.aROR_xiudiqpHWbWAOwa" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.2_vGehP0TyUiCjTGpd0t" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.DnsjPSnS_hoy_Z7En8yr" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.MsjWq00vTLjuE78FBW0E" height="400" width="400" />
 </p>
 
 ## 项目介绍
