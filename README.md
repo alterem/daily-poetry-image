@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/10 16:21:56
+  最近一次生成时间: 2024/4/10 18:17:41
 </p>
 <p align="center">
-诗界千年靡靡风，兵魂销尽国魂空。
+蓬鬓哀吟长城下，不堪秋气入金疮。
 </p>
 <p align="center">
-<<读陆放翁集>> • 梁启超
+<<逢病军人>> • 卢纶
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.lWeRw20NvZqoL0d4321s" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.yvpCG6CooqspNfKJ8Ptj" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.C56FtstVwVIqzbsWipgk" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.VX9BtYWDGy7.ZY.rOx4Z" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.dBHe1tdjC301cea19SLa" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.T9q1USWvDfTzdYOHkEdq" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.ALCdDjM4O2NtXyXrSngZ" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.Q1LBeL6.7otx8PDYLiB7" height="400" width="400" />
 </p>
 
 ## 项目介绍
