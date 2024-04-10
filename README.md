@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/11 02:21:02
+  最近一次生成时间: 2024/4/11 04:15:57
 </p>
 <p align="center">
-朝辞白帝彩云间，千里江陵一日还。
+夜发清溪向三峡，思君不见下渝州。
 </p>
 <p align="center">
-<<早发白帝城 / 白帝下江陵>> • 李白
+<<峨眉山月歌>> • 李白
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.aROR_xiudiqpHWbWAOwa" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.2_vGehP0TyUiCjTGpd0t" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.DnsjPSnS_hoy_Z7En8yr" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.MsjWq00vTLjuE78FBW0E" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.7xggVLZj2QuFnrOqfjFZ" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.CY_Xtb4Nkj.1ICRoFCIV" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.epNuIQo.8UxdUpYs8tXg" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.Sl.0A37m7fOxaOrSLriA" height="400" width="400" />
 </p>
 
 ## 项目介绍
