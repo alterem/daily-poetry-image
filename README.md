@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/10 15:23:01
+  最近一次生成时间: 2024/4/10 16:21:56
 </p>
 <p align="center">
-清晓妆成寒食天，柳球斜袅间花钿，卷帘直出画堂前。
+诗界千年靡靡风，兵魂销尽国魂空。
 </p>
 <p align="center">
-<<浣溪沙·清晓妆成寒食天>> • 韦庄
+<<读陆放翁集>> • 梁启超
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.gqGXNMMKPLuKXhEW3TKm" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.ZN6bslNJ1SgXeOOuU_ab" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.sU9yP5ro5yOOuxkuhqxb" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.vPVpgJx3xZrLEpx5jsti" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.lWeRw20NvZqoL0d4321s" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.yvpCG6CooqspNfKJ8Ptj" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.C56FtstVwVIqzbsWipgk" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.VX9BtYWDGy7.ZY.rOx4Z" height="400" width="400" />
 </p>
 
 ## 项目介绍
