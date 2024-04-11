@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/11 18:16:57
+  最近一次生成时间: 2024/4/11 20:28:15
 </p>
 <p align="center">
-兰陵美酒郁金香，玉碗盛来琥珀光。
+墉集欺猫鼠，林藏逐雀鹯。
 </p>
 <p align="center">
-<<客中行 / 客中作>> • 李白
+<<中秋咏怀借杜子美秋日述怀一百韵和寄柳州假鸣桑先生>> • 徐威
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.vW9rR4.c2eATUogA0GcH" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.5VnQw0pmWdO822_p1s0v" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.NZIkW2qtgjq5t2kITIvw" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.kz0yzM0y7k2w1T.ZewQq" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.tBY0mngx5n66GwwCBxdi" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.ZbyKk6bz53eP7u2fk_Mp" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.1gQzH6y.0.YdC5XDnfmU" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.E9lR2YhnfzVcABqyn22T" height="400" width="400" />
 </p>
 
 ## 项目介绍
