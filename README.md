@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/11 16:21:16
+  最近一次生成时间: 2024/4/11 18:16:57
 </p>
 <p align="center">
-江流天地外，山色有无中。
+兰陵美酒郁金香，玉碗盛来琥珀光。
 </p>
 <p align="center">
-<<汉江临泛 / 汉江临眺>> • 王维
+<<客中行 / 客中作>> • 李白
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.qeqvxxbMo8K8uk.1wvg8" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.aajFjUO7.TyHlRceMg0T" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.djlAK_bgzQz4lrYDkPWO" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.SVwDOiGT.yOdqAWmO15z" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.vW9rR4.c2eATUogA0GcH" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.5VnQw0pmWdO822_p1s0v" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.NZIkW2qtgjq5t2kITIvw" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.kz0yzM0y7k2w1T.ZewQq" height="400" width="400" />
 </p>
 
 ## 项目介绍
