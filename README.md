@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/12 12:19:30
+  最近一次生成时间: 2024/4/12 14:20:13
 </p>
 <p align="center">
-君行逾十年，孤妾常独栖。
+一轮秋影转金波。飞镜又重磨。
 </p>
 <p align="center">
-<<明月上高楼>> • 曹植
+<<太常引·建康中秋夜为吕叔潜赋>> • 辛弃疾
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.xABgS1kK.1U.khSUemEB" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.XMHVTmNoyG2Ja.wXMo7k" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.vewKvOL2Gsas4SocZ9JF" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.03zJm67ZJRwIW3LFHM_f" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.JCxc_.8L0OoKP4CjfrhO" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.za9Zn3Kol70sv3jNlPPf" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.k8_AzXN8mA8CZMKWmEdi" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.nkxFkstLRguKSa0PhsIs" height="400" width="400" />
 </p>
 
 ## 项目介绍
