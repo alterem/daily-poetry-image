@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/12 04:16:45
+  最近一次生成时间: 2024/4/12 09:06:58
 </p>
 <p align="center">
-见梨花初带夜月，海棠半含朝雨。
+花落家童未扫，莺啼山客犹眠。
 </p>
 <p align="center">
-<<三台·清明应制>> • 万俟咏
+<<田园乐七首·其六>> • 王维
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.M73Tm4oN7InY12Cay0WM" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.lhVJhxeHbeHGbXdWCyhn" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.ix7MjxAaYeZWdHJFsYXx" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.p0NVNobe0bURUwW4dJXg" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.z7ihj4Cy.gf3r_uFIUzs" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.QaIFnmUINfiby9rPMhEa" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.pJceGkpbKyYDZJb2kJPJ" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.GjjqKpdCT67agOUVj0iy" height="400" width="400" />
 </p>
 
 ## 项目介绍
