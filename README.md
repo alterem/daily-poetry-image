@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/13 00:19:15
+  最近一次生成时间: 2024/4/13 02:16:14
 </p>
 <p align="center">
-盘心清露如铅水，又一夜、西风吹折。
+曾经沧海难为水，除却巫山不是云。
 </p>
 <p align="center">
-<<疏影·咏荷叶>> • 张炎
+<<离思五首·其四>> • 元稹
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.eC5KNW_80lNWXz.aE95r" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.xav5_8o9V0FUlVVa.xsg" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.9lZIhkwpTAUGX0cGyD1O" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.JteJw850dh722kTeq5Ie" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.7ZPQSpl0J5s5ZHar4DiY" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.k4FqDcqOplcfg.LY5u32" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.8VyaR0zYMail9wwcwmC2" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.OQxVOFwPkC3aBB8_MNl." height="400" width="400" />
 </p>
 
 ## 项目介绍
