@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/13 02:16:14
+  最近一次生成时间: 2024/4/13 04:15:22
 </p>
 <p align="center">
-曾经沧海难为水，除却巫山不是云。
+疏篱下、试觅重阳，醉擘青露菊。
 </p>
 <p align="center">
-<<离思五首·其四>> • 元稹
+<<一寸金·秋感>> • 吴文英
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.7ZPQSpl0J5s5ZHar4DiY" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.k4FqDcqOplcfg.LY5u32" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.8VyaR0zYMail9wwcwmC2" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.OQxVOFwPkC3aBB8_MNl." height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.8BrVgMG57tKgvLUpQuQA" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.ABF0LOoeTMr293PCb6xW" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.22UzKyaC_BUCYiyefN22" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.sI5ZhqcKkBNa2j9fAZta" height="400" width="400" />
 </p>
 
 ## 项目介绍
