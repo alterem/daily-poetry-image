@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/12 20:27:55
+  最近一次生成时间: 2024/4/12 22:14:56
 </p>
 <p align="center">
-何因不归去？淮上有秋山。
+新竹高于旧竹枝，全凭老干为扶持。
 </p>
 <p align="center">
-<<淮上喜会梁川故人 / 淮上喜会梁州故人>> • 韦应物
+<<新竹>> • 郑燮
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.FZJFp88.OXGxaPlKhWAu" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.ByOPD7gKjTj93LS0.Xl." height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.0HWHyi0NY4L7mR7fP8Li" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.Rk4WOLnab4P4rzFuU_GQ" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.tHJ8ZY4LoXULfvlyxFuw" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.mjVC0ruMU.G7KBcHszYG" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.oCNlWomxu7dnfg.BD6wG" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.fguuN_lFu1m_I9CSBZse" height="400" width="400" />
 </p>
 
 ## 项目介绍
