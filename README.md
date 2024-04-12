@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/12 10:26:47
+  最近一次生成时间: 2024/4/12 12:19:30
 </p>
 <p align="center">
-似此星辰非昨夜，为谁风露立中宵。
+君行逾十年，孤妾常独栖。
 </p>
 <p align="center">
-<<绮怀>> • 黄景仁
+<<明月上高楼>> • 曹植
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.K0n74cOKwFoNl85QJ31o" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.Ole8TqivQlrlxkPPrCXc" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.r_NNXZgPU1_RNxEnjgPo" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.pcMMhHpOj4OG9iD3ww9f" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.xABgS1kK.1U.khSUemEB" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.XMHVTmNoyG2Ja.wXMo7k" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.vewKvOL2Gsas4SocZ9JF" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.03zJm67ZJRwIW3LFHM_f" height="400" width="400" />
 </p>
 
 ## 项目介绍
