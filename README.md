@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/12 22:14:56
+  最近一次生成时间: 2024/4/13 00:19:15
 </p>
 <p align="center">
-新竹高于旧竹枝，全凭老干为扶持。
+盘心清露如铅水，又一夜、西风吹折。
 </p>
 <p align="center">
-<<新竹>> • 郑燮
+<<疏影·咏荷叶>> • 张炎
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.tHJ8ZY4LoXULfvlyxFuw" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.mjVC0ruMU.G7KBcHszYG" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.oCNlWomxu7dnfg.BD6wG" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.fguuN_lFu1m_I9CSBZse" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.eC5KNW_80lNWXz.aE95r" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.xav5_8o9V0FUlVVa.xsg" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.9lZIhkwpTAUGX0cGyD1O" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.JteJw850dh722kTeq5Ie" height="400" width="400" />
 </p>
 
 ## 项目介绍
