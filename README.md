@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/13 04:15:22
+  最近一次生成时间: 2024/4/13 06:12:25
 </p>
 <p align="center">
-疏篱下、试觅重阳，醉擘青露菊。
+野火烧不尽，春风吹又生。
 </p>
 <p align="center">
-<<一寸金·秋感>> • 吴文英
+<<草 / 赋得古原草送别>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.8BrVgMG57tKgvLUpQuQA" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.ABF0LOoeTMr293PCb6xW" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.22UzKyaC_BUCYiyefN22" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.sI5ZhqcKkBNa2j9fAZta" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.qIEkzK1W.LdPS1evJqTk" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.jfkMzgVdVIiYqLfDyr8X" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.MoB3IOL8YNDvAmAJtSS6" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.sw.d2tMikbIL0UMWeE0_" height="400" width="400" />
 </p>
 
 ## 项目介绍
