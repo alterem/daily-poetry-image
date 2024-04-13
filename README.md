@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/13 22:13:17
+  最近一次生成时间: 2024/4/14 00:18:40
 </p>
 <p align="center">
-安得五彩虹，驾天作长桥。
+衰柳寒蝉一片愁，谁肯教白衣送酒？
 </p>
 <p align="center">
-<<焦山望寥山>> • 李白
+<<沉醉东风·重九>> • 关汉卿
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.RBVBu0Qi7BSaEEixLQP." height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.nQKC6Xw99Um6KWxNowop" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.YyW7tiz_w_medV21Md2m" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.FdDLw.XSp6zRjLgb8LBP" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.I_WcTJATopayR9XTBZ6N" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.y7.Q8cMtYejqlwaiW87a" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.dZagUkpOyr6cVhLdF0GG" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.tMzZNeFL5PUTFoCXbT0E" height="400" width="400" />
 </p>
 
 ## 项目介绍
