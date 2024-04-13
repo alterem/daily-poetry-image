@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/13 08:55:32
+  最近一次生成时间: 2024/4/13 10:14:11
 </p>
 <p align="center">
-喃喃教言语，一一刷毛衣。
+燕子衔将春色去，纱窗几阵黄梅雨。
 </p>
 <p align="center">
-<<燕诗示刘叟>> • 白居易
+<<黄金缕·妾本钱塘江上住>> • 司马槱
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.acT8cZUAxerbsQBx6tf." height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.i3szVjIMtW53q8YhrqCH" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.uVW1LU7vBLOoB23dPN.y" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.zTMRM5Z1K.OxhcMAp5.E" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.sKASx9UANLQcydlhzDnT" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1..zCTMomUgdyKPhRkhrKB" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.Un3IEutpUzLeHKm4yzy6" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.Kc5FILvdl7L6GNvRF7SQ" height="400" width="400" />
 </p>
 
 ## 项目介绍
