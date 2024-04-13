@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/13 18:12:43
+  最近一次生成时间: 2024/4/13 20:23:18
 </p>
 <p align="center">
-日暖桑麻光似泼，风来蒿艾气如薰。
+缀玉联珠六十年，谁教冥路作诗仙。
 </p>
 <p align="center">
-<<浣溪沙·软草平莎过雨新>> • 苏轼
+<<吊白居易>> • 李忱
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.3RFqC5v_TQcZSQ42zJ5j" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.Rk0xaVBNniWKKATvkggs" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.ftvcnYUB4J95r6HujBfU" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.LJw.GQAB9Y5kni2TCffY" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.qeLKFOO1WplcAfGDK6sD" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.E4clLlKuLNAHXQZ59.fJ" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.08aXyZOXE6D.KMVMZuM5" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.3TQ0G9cuvny0.Ois5Grc" height="400" width="400" />
 </p>
 
 ## 项目介绍
