@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/13 06:12:25
+  最近一次生成时间: 2024/4/13 08:55:32
 </p>
 <p align="center">
-野火烧不尽，春风吹又生。
+喃喃教言语，一一刷毛衣。
 </p>
 <p align="center">
-<<草 / 赋得古原草送别>> • 白居易
+<<燕诗示刘叟>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.qIEkzK1W.LdPS1evJqTk" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.jfkMzgVdVIiYqLfDyr8X" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.MoB3IOL8YNDvAmAJtSS6" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.sw.d2tMikbIL0UMWeE0_" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.acT8cZUAxerbsQBx6tf." height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.i3szVjIMtW53q8YhrqCH" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.uVW1LU7vBLOoB23dPN.y" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.zTMRM5Z1K.OxhcMAp5.E" height="400" width="400" />
 </p>
 
 ## 项目介绍
