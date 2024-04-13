@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/14 00:18:40
+  最近一次生成时间: 2024/4/14 02:15:22
 </p>
 <p align="center">
-衰柳寒蝉一片愁，谁肯教白衣送酒？
+归装渐理君知否？笑指庐山古涧藤。
 </p>
 <p align="center">
-<<沉醉东风·重九>> • 关汉卿
+<<自咏示客>> • 陆游
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.I_WcTJATopayR9XTBZ6N" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.y7.Q8cMtYejqlwaiW87a" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.dZagUkpOyr6cVhLdF0GG" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.tMzZNeFL5PUTFoCXbT0E" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.HfCkkesAvJyMBr.avl8v" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.wUKB4seC5iR.RjIyFHwv" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.cGnoZ7QFs1VpWcj2diyn" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.q7SwHdXOMafFb9l6sgJb" height="400" width="400" />
 </p>
 
 ## 项目介绍
