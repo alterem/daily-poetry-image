@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/14 04:13:03
+  最近一次生成时间: 2024/4/14 06:12:56
 </p>
 <p align="center">
-东风渐绿西湖柳，雁已还、人未南归。
+天生我材必有用，千金散尽还复来。
 </p>
 <p align="center">
-<<高阳台·送陈君衡被召>> • 周密
+<<将进酒>> • 李白
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.4ghYOCi13S7VPYd13_f1" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.FDBcjK9abo6_ZXBDOZwx" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.jD_W_2yVTgxElPUpeCyk" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.s5g18WAjByKBOk7tk6Ei" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.qPkuVBIxT6T6YI1pKnac" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.Zq5k4uyqf15Yzapk2S73" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.WF358.LFhJ3qBJQi32om" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.bKobZLzVaoT3Elx2.kc2" height="400" width="400" />
 </p>
 
 ## 项目介绍
