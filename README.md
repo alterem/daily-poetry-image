@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/14 15:51:32
+  最近一次生成时间: 2024/4/14 18:41:19
 </p>
 <p align="center">
-何时诏此金钱会，暂醉佳人锦瑟旁。
+正蹇驴吟影，茶烟灶冷，酒亭门闭。
 </p>
 <p align="center">
-<<曲江对雨>> • 杜甫
+<<无闷·催雪>> • 吴文英
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.uUyAyJZnW_bbBtsyQhbS" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.kC6BsWtN.cPVpO4G2yHT" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.6ifELA5LkiA7yeDUUiGM" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.T41BIK69fSqB2gsd0Mfw" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.LWHr5EDNmzbj7xvFBmNp" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.rkM9ht29FwgBJegT6Umz" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.TT102YjuECGPLAzlQ6lp" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.GrKVrnlI6Q.dHxwDkuNM" height="400" width="400" />
 </p>
 
 ## 项目介绍
