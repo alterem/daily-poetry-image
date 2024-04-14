@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/14 06:12:56
+  最近一次生成时间: 2024/4/14 09:23:38
 </p>
 <p align="center">
-天生我材必有用，千金散尽还复来。
+兴尽晚回舟，误入藕花深处。
 </p>
 <p align="center">
-<<将进酒>> • 李白
+<<如梦令·常记溪亭日暮>> • 李清照
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.qPkuVBIxT6T6YI1pKnac" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.Zq5k4uyqf15Yzapk2S73" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.WF358.LFhJ3qBJQi32om" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.bKobZLzVaoT3Elx2.kc2" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.Hc0qSK1.Dv6Qx5vX1byO" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.YLf9USi9zz1mCw5WA4I8" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.U8CiyPCy8Fi1pHPUhUmH" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.z0FhqHtyE.LK2nd8UNWM" height="400" width="400" />
 </p>
 
 ## 项目介绍
