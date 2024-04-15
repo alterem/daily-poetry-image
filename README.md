@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/15 14:19:37
+  最近一次生成时间: 2024/4/15 16:16:05
 </p>
 <p align="center">
-只在此山中，云深不知处。
+搴帷拜母河梁去，白发愁看泪眼枯。
 </p>
 <p align="center">
-<<寻隐者不遇 / 孙革访羊尊师诗>> • 贾岛
+<<别老母>> • 黄景仁
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.RUdl4sKFiXVfrXx4h4EI" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.XV2xiUmlmjlpnfLdHi.N" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.nKFGQY26DmZmjV4IB5sf" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.fpJVSdDPykTjxBJU.uGa" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.SODBALajE0b.mSsKU3Yp" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.B7KptNJ6PnwzInaQ_7dK" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.8Ue2RQcXQUKzlsV6VUf_" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.yHxxsNtCpTSurAQvtlXQ" height="400" width="400" />
 </p>
 
 ## 项目介绍
