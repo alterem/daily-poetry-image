@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/15 22:14:39
+  最近一次生成时间: 2024/4/16 00:20:19
 </p>
 <p align="center">
-东风吹落战尘沙，梦想西湖处士家；
+呵笔难临帖，敲床且煮茶。
 </p>
 <p align="center">
-<<观梅有感>> • 刘因
+<<暮雪>> • 大须
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.CbuGY31aoo6tMKNllLsU" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.VCIBCAzpNYvF7ZMQzRg7" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.j19O72cR0CpZNJj3Vs15" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.2otkP6.LzC6jD7Q7uPH8" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.qdBy9R1oVezmgrQdWpSU" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.TeyOBtq7fXQtRwgCBFLe" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3._joTrfciheQ0.85k0EoF" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.c75gfvrer9tREmJXY4UE" height="400" width="400" />
 </p>
 
 ## 项目介绍
