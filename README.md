@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/16 22:16:16
+  最近一次生成时间: 2024/4/17 00:20:14
 </p>
 <p align="center">
-海日生残夜，江春入旧年。
+两岸荔枝红，万家烟雨中。
 </p>
 <p align="center">
-<<次北固山下>> • 王湾
+<<菩萨蛮·子规啼破城楼月>> • 李师中
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.dGjAsc1YKP30Ba5v6YZS" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.X6E6ueFt8gn1hCLzusXk" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.1BxjgKZ6m_F8ekl4Xurf" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.RD0JeNvs0i9u_huw4DYR" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.IWCi2bD0PUWJ_Fe22eN3" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.q04mNPb_v1wu9UpoBRHY" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.SsY4Am.wMGTmsKKvFYHh" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.J0oN0PPoBzoCvzW_eq.r" height="400" width="400" />
 </p>
 
 ## 项目介绍
