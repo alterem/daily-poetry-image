@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/17 04:16:03
+  最近一次生成时间: 2024/4/17 06:14:53
 </p>
 <p align="center">
-从来幽怨应无数？铁马金戈，青冢黄昏路。
+父兮生我，母兮鞠我。
 </p>
 <p align="center">
-<<蝶恋花·出塞>> • 纳兰性德
+<<蓼莪>> • 佚名
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.dlBDJFkD1wiDcxiejDbq" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.3aFK5Zk4aqwH2SgkMhWr" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.XqqQPSg69r4_NlS9uTfu" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.3iFFLgcu4MrEDoIjWXPJ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.tl46k3YUnPrbtmC6R8f5" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.gWznT0.1KZMA3CzZhjQv" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.jHrZI6jQN_wMYxm5auJE" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.ZpPUUaJSl3r_k39rYKBH" height="400" width="400" />
 </p>
 
 ## 项目介绍
