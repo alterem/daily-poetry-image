@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/16 06:13:42
+  最近一次生成时间: 2024/4/16 09:06:01
 </p>
 <p align="center">
-马穿山径菊初黄，信马悠悠野兴长。
+老母与子别，呼天野草间。
 </p>
 <p align="center">
-<<村行·马穿山径菊初黄>> • 王禹偁
+<<豫章行>> • 李白
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.VsYsZZG4xoacP1LkPuxQ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2..NzCFHE.Xz99VHlP2JSO" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.usIQ0BL9eBMYRafGiyz5" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.hPBQRk7PkQmIlLLI4mn1" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3._qpTNyOz625paVwbBhOH" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.hS03_REdeLaZkaukAhk5" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3..5uUTnEK8dTY2Vt.XkA6" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.UoIr4dBobJZlYT9elSij" height="400" width="400" />
 </p>
 
 ## 项目介绍
