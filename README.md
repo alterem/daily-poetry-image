@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/17 20:29:09
+  最近一次生成时间: 2024/4/17 22:15:24
 </p>
 <p align="center">
-去日儿童皆长大，昔年亲友半凋零。
+穷且益坚，不坠青云之志。
 </p>
 <p align="center">
-<<夏夜宿表兄话旧>> • 窦叔向
+<<滕王阁序>> • 王勃
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.6iDMBErQOFK4iFMoRo.B" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.GZH6aM_hLYZW97cvDSpg" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.N3PkZZPDvuaqO6KpCn.r" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1._1he6tn4Dv_uiYzw8fxg" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.qlGLg1.2NlYTRi2.M2A5" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.d0rRgyitLCiw..0AOi20" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.NKhhf23tK_cenMy63NKi" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.N96YIi5eHXkHCVecPzPs" height="400" width="400" />
 </p>
 
 ## 项目介绍
