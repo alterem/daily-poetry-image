@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/17 14:22:30
+  最近一次生成时间: 2024/4/17 16:19:24
 </p>
 <p align="center">
-一道鹊桥横渺渺，千声玉佩过玲玲。
+鄂王坟上草离离，秋日荒凉石兽危。
 </p>
 <p align="center">
-<<七夕>> • 徐凝
+<<岳鄂王墓>> • 赵孟頫
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.WzO6YdEAEZAEr.iC2b_D" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.xY23ROt5IBqOeVeVCIJz" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.slTBOeyCvHF07y6UubVi" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.2s19ZycnyWZrAMY4U4Wt" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.TOZKoYDSXjj5Un_BIwu." height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.jCjiMPa9yoh5JSYeUV9I" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.ZEqSlyDO3yW_jdxrHYlb" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.j0sLPJo9YffvZhVkzH5t" height="400" width="400" />
 </p>
 
 ## 项目介绍
