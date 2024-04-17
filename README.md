@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/17 12:19:13
+  最近一次生成时间: 2024/4/17 14:22:30
 </p>
 <p align="center">
-蜃散云收破楼阁，虹残水照断桥粱。
+一道鹊桥横渺渺，千声玉佩过玲玲。
 </p>
 <p align="center">
-<<江楼晚眺景物鲜奇吟玩成篇寄水部张员外>> • 白居易
+<<七夕>> • 徐凝
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.TtV_kz0jW_TSX3ROzsue" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.N7jk2t.Nz2YPDUvS1o9E" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.4qtfG_W5Q4ffAHBl_qox" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.eAVEyPKyqrpSyi9E4vLR" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.WzO6YdEAEZAEr.iC2b_D" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.xY23ROt5IBqOeVeVCIJz" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.slTBOeyCvHF07y6UubVi" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.2s19ZycnyWZrAMY4U4Wt" height="400" width="400" />
 </p>
 
 ## 项目介绍
