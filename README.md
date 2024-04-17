@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/17 06:14:53
+  最近一次生成时间: 2024/4/17 09:06:47
 </p>
 <p align="center">
-父兮生我，母兮鞠我。
+胡雁哀鸣夜夜飞，胡儿眼泪双双落。
 </p>
 <p align="center">
-<<蓼莪>> • 佚名
+<<古从军行>> • 李颀
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.tl46k3YUnPrbtmC6R8f5" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.gWznT0.1KZMA3CzZhjQv" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.jHrZI6jQN_wMYxm5auJE" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.ZpPUUaJSl3r_k39rYKBH" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4..zRDq1db08fB.0Wp.u7Z" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.fiB0dR946QKGxIs7Co1U" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.V5bKwS0SGcsxijX2SKx6" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.a6re9ZP5SrAHbTMg85xe" height="400" width="400" />
 </p>
 
 ## 项目介绍
