@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/18 22:15:20
+  最近一次生成时间: 2024/4/19 00:20:27
 </p>
 <p align="center">
-郁孤台下清江水，中间多少行人泪？
+千载休谈南渡错，当时自怕中原复。
 </p>
 <p align="center">
-<<菩萨蛮·书江西造口壁>> • 辛弃疾
+<<满江红·拂拭残碑>> • 文征明
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.FpRd_fhUkIWO17iq1W8n" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.LSQQLOz4Dqd7E.xSpOwk" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.Hbg8fBuNS0FtH_b24nPk" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.2Y2kFKCLlx.sAA8NluVh" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.2AVZME5neMyWFvJa6Aky" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.F6FRjxKlZ9_qhnGVQ7U6" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.03PKwgwHyPm8jZTCJgi_" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.eXCrRcXnQ4oWEowsdwUM" height="400" width="400" />
 </p>
 
 ## 项目介绍
