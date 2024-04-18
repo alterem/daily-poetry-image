@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/19 02:19:56
+  最近一次生成时间: 2024/4/19 04:16:12
 </p>
 <p align="center">
-雨暗残灯棋散后，酒醒孤枕雁来初。
+奇文共欣赏，疑义相与析。
 </p>
 <p align="center">
-<<齐安郡晚秋>> • 杜牧
+<<移居二首>> • 陶渊明
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.zZnfmp198C9c0VNwQDJV" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.MLjQ.6Ds5gKvY0UtYb.4" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.6TdjvqKZ_wYTV_zGdXTV" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.iPkDn6w3SuflB8ak5Lv." height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.4c7ZJ3QSAsw3sPsrHSHN" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.nXaZzz42FauRIbD.x937" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.5NPh6MzDcqYlmmu5qu9F" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.F8jfHH7l6tA3YtR1lbir" height="400" width="400" />
 </p>
 
 ## 项目介绍
