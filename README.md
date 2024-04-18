@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/18 06:14:10
+  最近一次生成时间: 2024/4/18 09:06:16
 </p>
 <p align="center">
-彩线轻缠红玉臂，小符斜挂绿云鬟。佳人相见一千年。
+瀑布风前千尺影，疑泻银河一派。
 </p>
 <p align="center">
-<<浣溪沙·端午>> • 苏轼
+<<念奴娇·雪霁夜月中登楼望贺兰山作>> • 朱栴
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.kobq3sSiijDc3htnPyu8" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.d0mqhbZ0kvuh3QBw6N7t" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.Y9e7R40ttJno7iWRF6MB" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.HZ0lqWOZq4csIs8SZrVE" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.Y_J.YF16bb_3DNjTm6PR" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.DqN1f6KvC4zHqeScxN.5" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.iyzzNHHN9ACIaCQ09fQ6" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.Ais1q5I5N30BpgDUtDEw" height="400" width="400" />
 </p>
 
 ## 项目介绍
