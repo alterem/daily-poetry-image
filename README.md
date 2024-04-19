@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/20 02:18:44
+  最近一次生成时间: 2024/4/20 04:15:52
 </p>
 <p align="center">
-三十功名尘与土，八千里路云和月。
+被酒莫惊春睡重，赌书消得泼茶香，当时只道是寻常。
 </p>
 <p align="center">
-<<满江红·写怀>> • 岳飞
+<<浣溪沙·谁念西风独自凉>> • 纳兰性德
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.kaFrOagGXbLHj4sGB3h_" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.eoelj6sKUTZEY3NLae0O" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.uYI443OW893E2TnjV0vA" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.PJwM9DZmGGu6oOhJUKIh" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.fmM0etni.F5rlytjQZc4" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.01KVXh.3waQJd_GuUW68" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.19DeOGEsNIc__1r6qSQu" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.bOQnUlPU6RuiJHqguxnP" height="400" width="400" />
 </p>
 
 ## 项目介绍
