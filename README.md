@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/19 12:17:53
+  最近一次生成时间: 2024/4/19 14:20:32
 </p>
 <p align="center">
-劝君莫惜金缕衣，劝君惜取少年时。
+泠泠七弦上，静听松风寒。
 </p>
 <p align="center">
-<<金缕衣>> • 杜秋娘
+<<听弹琴>> • 刘长卿
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.rZ0hkQjmNG_6AfGKwcY7" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.UFI_q4BrZuXjv_J6ER6R" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.6dqiMo.Sena.x1fkJ1L3" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.daR06vUX7E5UfKpXLlNv" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.ZM2NSCvUxZLfaTIUTEIY" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1..HhBBVXXNh3kFkasldYg" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.D.cRPPiLe7zlnkZD5ThI" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.nHUj6Mgz2LyyGdVEPhVb" height="400" width="400" />
 </p>
 
 ## 项目介绍
