@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/19 06:14:08
+  最近一次生成时间: 2024/4/19 09:06:53
 </p>
 <p align="center">
-三更灯火五更鸡，正是男儿读书时。
+遥知兄弟登高处，遍插茱萸少一人。
 </p>
 <p align="center">
-<<劝学诗>> • 颜真卿
+<<九月九日忆山东兄弟 / 九月九忆山东兄弟>> • 王维
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.TFR660xDpK7l36XaJ6Pb" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.iB1LSRjB8mfKUQuu9jFD" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.x35cOaz4.mfq7G_7iksA" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.tozWlp727HZq4H485Asy" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.tK5YEekJCwLG26.zJ_cF" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.Hl671uEWYFqyrW7IiSiM" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.rQvjYAtVGMsGddDl.A23" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.2rU00ZM2tVstDFAH0a1Q" height="400" width="400" />
 </p>
 
 ## 项目介绍
