@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/20 04:15:52
+  最近一次生成时间: 2024/4/20 06:14:41
 </p>
 <p align="center">
-被酒莫惊春睡重，赌书消得泼茶香，当时只道是寻常。
+一身犹在，乱山深处，寂寞溪桥畔。
 </p>
 <p align="center">
-<<浣溪沙·谁念西风独自凉>> • 纳兰性德
+<<青玉案·年年社日停针线>> • 黄公绍
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.fmM0etni.F5rlytjQZc4" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.01KVXh.3waQJd_GuUW68" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.19DeOGEsNIc__1r6qSQu" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.bOQnUlPU6RuiJHqguxnP" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.ZFrJrL90Boncm0g0DddL" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.fDc8UoMCZAgUsh5D0kBw" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.tmOsTnb5J09rpsqgJnRg" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.AJjYxloNYV459wGNQYOd" height="400" width="400" />
 </p>
 
 ## 项目介绍
