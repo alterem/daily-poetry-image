@@ -8,18 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/19 20:28:06
+  最近一次生成时间: 2024/4/19 22:14:34
 </p>
 <p align="center">
-曾与美人桥上别，恨无消息到今朝。
+穗帷飘井干，樽酒若平生。
 </p>
 <p align="center">
-<<杨柳枝 / 柳枝词>> • 刘禹锡
+<<同谢谘议咏铜雀台>> • 谢朓
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.mNAfCrcVFFgq_gRne_Fw" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.zkxTFadeqigyc0rymdx1" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.T62O9vHk.Vg5he.5dup1" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.qpfu0GZfnRMR.RLv4Z0Q" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.ayw1HH1UMc_Ywev01cQ2" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.mLPKok73hfXLxE7Zsx26" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.Bi83gB2ZKHu3FFTOzbv4" height="400" width="400" />
 </p>
 
 ## 项目介绍
