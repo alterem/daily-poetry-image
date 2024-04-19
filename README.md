@@ -8,19 +8,18 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/19 18:17:02
+  最近一次生成时间: 2024/4/19 20:28:06
 </p>
 <p align="center">
-有孙母未去，出入无完裙。
+曾与美人桥上别，恨无消息到今朝。
 </p>
 <p align="center">
-<<石壕吏>> • 杜甫
+<<杨柳枝 / 柳枝词>> • 刘禹锡
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.Hcevodahke6rEndPqNJ5" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2..NFAw3AfESBVBK4CaTPZ" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.CFE9s8AbuDPLAQjLAnq2" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.e4AtflBayiny7kq3.Tvv" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.mNAfCrcVFFgq_gRne_Fw" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.zkxTFadeqigyc0rymdx1" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.T62O9vHk.Vg5he.5dup1" height="400" width="400" />
 </p>
 
 ## 项目介绍
