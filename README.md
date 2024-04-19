@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/19 14:20:32
+  最近一次生成时间: 2024/4/19 16:19:26
 </p>
 <p align="center">
-泠泠七弦上，静听松风寒。
+他乡逢七夕，旅馆益羁愁。
 </p>
 <p align="center">
-<<听弹琴>> • 刘长卿
+<<他乡七夕>> • 孟浩然
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.ZM2NSCvUxZLfaTIUTEIY" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1..HhBBVXXNh3kFkasldYg" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.D.cRPPiLe7zlnkZD5ThI" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.nHUj6Mgz2LyyGdVEPhVb" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.qRDDlQ8C.NDRmsy5BBVh" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.6ptO3c3cdgTLh20OJ99D" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.fUmsIthfiEUwSqFc03lF" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.JtW5HILJ4YuCLn8Gx.rw" height="400" width="400" />
 </p>
 
 ## 项目介绍
