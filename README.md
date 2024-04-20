@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/20 16:17:34
+  最近一次生成时间: 2024/4/20 18:15:55
 </p>
 <p align="center">
-两情若是久长时，又岂在朝朝暮暮。
+去年离别雁初归，今夜裁缝萤已飞。
 </p>
 <p align="center">
-<<鹊桥仙·纤云弄巧>> • 秦观
+<<闺怨 / 怨诗>> • 张纮
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.iHTB.gXWvNkoX1.2ek9K" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.5uvMT18YjWfeQakDfp_v" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.PUPvSgKSsvJzpLv0AW8E" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.5K572794wJc_CsPKOCRN" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.cejA9xp0mbaXeWVJlJ99" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.Gz9YMnl1XU6eqh0Fpkvr" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.V0G7HjHUB0faF8qHFSkZ" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.HPsZW0KW0mLZcQiJFCC4" height="400" width="400" />
 </p>
 
 ## 项目介绍
