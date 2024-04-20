@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/20 22:12:32
+  最近一次生成时间: 2024/4/21 00:19:27
 </p>
 <p align="center">
-星稀河影转，霜重月华孤。
+孤舟蓑笠翁，独钓寒江雪。
 </p>
 <p align="center">
-<<临江仙·试问梅花何处好>> • 张孝祥
+<<江雪>> • 柳宗元
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.CyffM_zvEMqO060yZ0cY" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.DpqquxLRDLa0Tr5OOVES" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.S9R0QUJrI8u_63Pf5LMs" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.Jvq9SjEpb8N4nElEq0ew" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.OCwI_eo1u1yUcopgtEXK" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.21wg4DQY_iU8vww940az" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.UgxPeqplW41lvjxhv5T9" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.CH6026H331iboGZYWu.r" height="400" width="400" />
 </p>
 
 ## 项目介绍
