@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/20 18:15:55
+  最近一次生成时间: 2024/4/20 20:26:28
 </p>
 <p align="center">
-去年离别雁初归，今夜裁缝萤已飞。
+听元宵，往岁喧哗，歌也千家，舞也千家。
 </p>
 <p align="center">
-<<闺怨 / 怨诗>> • 张纮
+<<古蟾宫·元宵>> • 王磐
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.cejA9xp0mbaXeWVJlJ99" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.Gz9YMnl1XU6eqh0Fpkvr" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.V0G7HjHUB0faF8qHFSkZ" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.HPsZW0KW0mLZcQiJFCC4" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.9pd8BAuNHn0Vpn_o610i" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.NNJ.fk9Td.dgTVwINFZ7" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.DcOFU4BRr0VOhIg8qaOL" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.CW7qMeyo74OIT_v9GViK" height="400" width="400" />
 </p>
 
 ## 项目介绍
