@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/21 10:26:06
+  最近一次生成时间: 2024/4/21 12:19:11
 </p>
 <p align="center">
-父兮生我，母兮鞠我。
+母别子，子别母，白日无光哭声苦。
 </p>
 <p align="center">
-<<蓼莪>> • 佚名
+<<母别子>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.2pXy_Z3yHl5f1MQEUPTR" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.3vD0mjJBdwZUZuI3hI.H" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.c_W6MdOV5YC7FMHXwCLO" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.jbuQLNOWYhLWdallCfcR" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.8sehsbpCeC.KFA1YIpg." height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.whi3jVp1RG0wzlcWHUTF" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.Uj21t3K07SGPcsxnmGue" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.EKbnW3317GDd1rx7Y2oB" height="400" width="400" />
 </p>
 
 ## 项目介绍
