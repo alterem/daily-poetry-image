@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/23 02:19:30
+  最近一次生成时间: 2024/4/23 04:16:46
 </p>
 <p align="center">
-迟日园林悲昔游，今春花鸟作边愁。
+东边日出西边雨，道是无晴却有晴。
 </p>
 <p align="center">
-<<渡湘江>> • 杜审言
+<<竹枝词二首·其一>> • 刘禹锡
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.Ydf9ztfDoGlM0sY.U8vu" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.6CodpAWSZTi30qMZTcyI" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.i0gXQBFrFpaK7P2xrbfD" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.KCO.gkOkJYyaGXbAz83y" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.mzVQ_eP1W2TfnkEWi50x" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.B3.2GVezL3GNwwRgyfYN" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.SIgof6NrgmF6De9XZUf0" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.DwNJyo56vEOPE1UoJuPX" height="400" width="400" />
 </p>
 
 ## 项目介绍
