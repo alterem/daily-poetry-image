@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/23 04:16:46
+  最近一次生成时间: 2024/4/23 06:15:52
 </p>
 <p align="center">
-东边日出西边雨，道是无晴却有晴。
+雨足高田白，披蓑半夜耕。
 </p>
 <p align="center">
-<<竹枝词二首·其一>> • 刘禹锡
+<<田上>> • 崔道融
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.mzVQ_eP1W2TfnkEWi50x" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.B3.2GVezL3GNwwRgyfYN" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.SIgof6NrgmF6De9XZUf0" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.DwNJyo56vEOPE1UoJuPX" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.I606NbEczHCBOt_taOcA" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.nDbY5J4L5WzWgaPCmt3b" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.4q.EWldYA1tgyayFE6LA" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2._1_23HTiTfdr.7HPSUAy" height="400" width="400" />
 </p>
 
 ## 项目介绍
