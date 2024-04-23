@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/23 18:15:57
+  最近一次生成时间: 2024/4/23 20:29:57
 </p>
 <p align="center">
-父耕原上田，子劚山下荒。
+神椎凿石塞神潭，白马参覃赤尘起。
 </p>
 <p align="center">
-<<田家>> • 聂夷中
+<<拂舞词 / 公无渡河>> • 温庭筠
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4..5pzU1PlXDo1Gcz6OPDp" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.IoN1zCQ_HPi0xnYeNWAV" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.qARfKjQtAOiLljiAvDF2" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4..kGzR_zgiA9GqC.rdjoK" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.wTiR1q8CcB_rrPTaHy23" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.pF7XJqsbvI9dJnFWOgE1" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.FqC3NHMFE3CQB4RbNcZM" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.adzR_7wL7XX2hXAPyrSb" height="400" width="400" />
 </p>
 
 ## 项目介绍
