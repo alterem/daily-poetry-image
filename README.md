@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/23 14:22:28
+  最近一次生成时间: 2024/4/23 16:19:17
 </p>
 <p align="center">
-平生多感激，忠义非外奖。
+大漠风尘日色昏，红旗半卷出辕门。
 </p>
 <p align="center">
-<<酬裴侍御对雨感时见赠>> • 李白
+<<从军行七首>> • 王昌龄
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.LqwNXGGfOKVBFbiQxj9X" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.s9G_kM.YoaJTuo5t7LKI" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.I0ylAsvSlJ4yZJ0L9XK1" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.3NI34YerEq0u.GBS0in6" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.zo5fj6wVlGyneEi6p0Oo" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.WKhApUe.9O95BmDEDhlo" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.jIQNkBjQfyzOBnz7bZjy" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.upGQAwvOxA7V65.Vzzk7" height="400" width="400" />
 </p>
 
 ## 项目介绍
