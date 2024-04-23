@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/23 16:19:17
+  最近一次生成时间: 2024/4/23 18:15:57
 </p>
 <p align="center">
-大漠风尘日色昏，红旗半卷出辕门。
+父耕原上田，子劚山下荒。
 </p>
 <p align="center">
-<<从军行七首>> • 王昌龄
+<<田家>> • 聂夷中
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.zo5fj6wVlGyneEi6p0Oo" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.WKhApUe.9O95BmDEDhlo" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.jIQNkBjQfyzOBnz7bZjy" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.upGQAwvOxA7V65.Vzzk7" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4..5pzU1PlXDo1Gcz6OPDp" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.IoN1zCQ_HPi0xnYeNWAV" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.qARfKjQtAOiLljiAvDF2" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4..kGzR_zgiA9GqC.rdjoK" height="400" width="400" />
 </p>
 
 ## 项目介绍
