@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/23 06:15:52
+  最近一次生成时间: 2024/4/23 09:08:01
 </p>
 <p align="center">
-雨足高田白，披蓑半夜耕。
+卧看牵牛织女星，月转过梧桐树影。
 </p>
 <p align="center">
-<<田上>> • 崔道融
+<<沉醉东风·七夕>> • 卢挚
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.I606NbEczHCBOt_taOcA" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.nDbY5J4L5WzWgaPCmt3b" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.4q.EWldYA1tgyayFE6LA" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2._1_23HTiTfdr.7HPSUAy" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.m7oWGIIhOwuxwVw_6EXn" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.fhKDT9UpSgwfS_7ViojU" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.bkyYmocvfMLqzvHEbU4C" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.D1RAMQhplCx18eLMP_ZK" height="400" width="400" />
 </p>
 
 ## 项目介绍
