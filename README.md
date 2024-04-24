@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/24 10:26:10
+  最近一次生成时间: 2024/4/24 12:18:04
 </p>
 <p align="center">
-路出大梁城，关河开晓晴。
+童子解吟长恨曲，胡儿能唱琵琶篇。
 </p>
 <p align="center">
-<<渡黄河>> • 谢榛
+<<吊白居易>> • 李忱
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.IHpfiseMB3z6tlWC9jsp" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.3lzSX7n3wXLPA22pYgjY" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.IPQhOQmppjl8EAKn3fvh" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.hBfNiMavxlY0GiRNWl8o" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.sbnG_Qidx1wyxkB5beAI" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.HrqP3u0Pxnmyf04vir.m" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.kWTxYWenhAWqGhvaba9K" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.MbrQrWAhFUEbcmoygLBU" height="400" width="400" />
 </p>
 
 ## 项目介绍
