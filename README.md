@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/24 12:18:04
+  最近一次生成时间: 2024/4/24 14:23:05
 </p>
 <p align="center">
-童子解吟长恨曲，胡儿能唱琵琶篇。
+数树梨花，晚风吹堕半汀鹭。
 </p>
 <p align="center">
-<<吊白居易>> • 李忱
+<<齐天乐·新烟初试花如梦>> • 吴文英
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.sbnG_Qidx1wyxkB5beAI" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.HrqP3u0Pxnmyf04vir.m" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.kWTxYWenhAWqGhvaba9K" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.MbrQrWAhFUEbcmoygLBU" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.aIIcmOAyWBdZS6pSN5NR" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.rojJVVGdWdr8KZZYiv9z" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1..Yp_2jobcJkKLzsv52Bn" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.i4LHDzUSn2sSVt0PWn7G" height="400" width="400" />
 </p>
 
 ## 项目介绍
