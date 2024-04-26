@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/26 18:16:54
+  最近一次生成时间: 2024/4/26 20:28:56
 </p>
 <p align="center">
-轻汗微微透碧纨，明朝端午浴芳兰。
+一骑红尘妃子笑，无人知是荔枝来。
 </p>
 <p align="center">
-<<浣溪沙·端午>> • 苏轼
+<<过华清宫绝句三首>> • 杜牧
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.EUYS2UcuyvYAH0xQMWDk" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.r7aGOfgYzGIiuWsSUNE6" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.TttO2YgWl2ZXLXxrr1hO" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2._UimPrh2ypRCxx4ob7iW" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.NpOvETTQSAlJxL6.ek7F" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.y8.dmpNN0qUhK69vkpNZ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.WRyvLYWJFMyXjqZEdDlt" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.r7uWg4ZklUFvvpGDGiTe" height="400" width="400" />
 </p>
 
 ## 项目介绍
