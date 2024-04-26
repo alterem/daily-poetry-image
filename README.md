@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/26 20:28:56
+  最近一次生成时间: 2024/4/27 00:20:42
 </p>
 <p align="center">
-一骑红尘妃子笑，无人知是荔枝来。
+人间四月芳菲尽，山寺桃花始盛开。
 </p>
 <p align="center">
-<<过华清宫绝句三首>> • 杜牧
+<<大林寺桃花>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.NpOvETTQSAlJxL6.ek7F" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.y8.dmpNN0qUhK69vkpNZ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.WRyvLYWJFMyXjqZEdDlt" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.r7uWg4ZklUFvvpGDGiTe" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.f1Elvv9qfYvVlyy_0Eg2" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.w2oUTQ9n88_SLi2D7MC3" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.I9ktFHLflvHuddPmUfis" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.WgtVxV3litLYbHMurXO6" height="400" width="400" />
 </p>
 
 ## 项目介绍
