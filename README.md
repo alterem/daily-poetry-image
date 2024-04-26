@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/26 16:19:24
+  最近一次生成时间: 2024/4/26 18:16:54
 </p>
 <p align="center">
-羌管悠悠霜满地，人不寐，将军白发征夫泪。
+轻汗微微透碧纨，明朝端午浴芳兰。
 </p>
 <p align="center">
-<<渔家傲·秋思>> • 范仲淹
+<<浣溪沙·端午>> • 苏轼
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.GPj4X2pMx_OeJTA6m0Hh" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.CZquNu41FbxtSQoyCHGu" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.Jh2CaITca3MckeV0ZcJd" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.lIRPOeLFhLTGI6.AxfQH" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.EUYS2UcuyvYAH0xQMWDk" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.r7aGOfgYzGIiuWsSUNE6" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.TttO2YgWl2ZXLXxrr1hO" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2._UimPrh2ypRCxx4ob7iW" height="400" width="400" />
 </p>
 
 ## 项目介绍
