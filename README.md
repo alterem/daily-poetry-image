@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/30 04:16:10
+  最近一次生成时间: 2024/4/30 06:14:42
 </p>
 <p align="center">
-瀑布风前千尺影，疑泻银河一派。
+断虹霁雨，净秋空，山染修眉新绿。
 </p>
 <p align="center">
-<<念奴娇·雪霁夜月中登楼望贺兰山作>> • 朱栴
+<<念奴娇·断虹霁雨>> • 黄庭坚
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.9aH4LZIONIj14osOeHx." height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.tIf2RYadihpg6OU9ZLeQ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.wuaURuOx9Q_LLnHvpg_H" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.G_lH8DVZf80RUHf_o9ks" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.8ORxHVKxPwo1kcxR8xpx" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.0xyLwA3NJ3TsLZCKcOYy" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.JRVIzmy.ZoeKOVC3R3Wo" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.86pZYfRhMayQz4ijXIWg" height="400" width="400" />
 </p>
 
 ## 项目介绍
