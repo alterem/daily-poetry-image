@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/29 12:18:45
+  最近一次生成时间: 2024/4/29 14:21:35
 </p>
 <p align="center">
-南国有佳人，容华若桃李。
+男儿西北有神州，莫滴水西桥畔泪。
 </p>
 <p align="center">
-<<杂诗·南国有佳人>> • 曹植
+<<玉楼春·戏林推>> • 刘克庄
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.jaMcdodRU41kyYkocw6D" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.OJbQeICUfrGUOD60zXwM" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.WZSt9a_u.cHpV3eJbQUX" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.pr0zYBBPTvXW88dMA3jn" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.FKbKAagwwukxlqy87gL5" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.VLR4RvWL9DMjQDQ87s.Z" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.r4AUZ9JOh4od6nS8R5mf" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.pk8JEuBHqAmLsZkBZbFe" height="400" width="400" />
 </p>
 
 ## 项目介绍
