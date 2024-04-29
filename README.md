@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/30 02:19:53
+  最近一次生成时间: 2024/4/30 04:16:10
 </p>
 <p align="center">
-身既死兮神以灵，魂魄毅兮为鬼雄。
+瀑布风前千尺影，疑泻银河一派。
 </p>
 <p align="center">
-<<国殇>> • 屈原
+<<念奴娇·雪霁夜月中登楼望贺兰山作>> • 朱栴
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.O04sBoE4tJxkzJYqtgvl" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.92R5Bh6L0b.PCsusS9rG" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.sUZdM862kdx00UbxvsAe" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.vLIbwdGkDomMx.lilBhR" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.9aH4LZIONIj14osOeHx." height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.tIf2RYadihpg6OU9ZLeQ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.wuaURuOx9Q_LLnHvpg_H" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.G_lH8DVZf80RUHf_o9ks" height="400" width="400" />
 </p>
 
 ## 项目介绍
