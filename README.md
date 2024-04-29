@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/29 14:21:35
+  最近一次生成时间: 2024/4/29 16:21:02
 </p>
 <p align="center">
-男儿西北有神州，莫滴水西桥畔泪。
+去年东武今夕，明月不胜愁。
 </p>
 <p align="center">
-<<玉楼春·戏林推>> • 刘克庄
+<<水调歌头·徐州中秋>> • 苏辙
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.FKbKAagwwukxlqy87gL5" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.VLR4RvWL9DMjQDQ87s.Z" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.r4AUZ9JOh4od6nS8R5mf" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.pk8JEuBHqAmLsZkBZbFe" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.wpShEoYJekNpsUIsWIAZ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.shs8_TvI.BVFPmy6R0FS" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.BEvejZ59LzR0OAzugXPV" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.8b.nTWU_m0n1k..sbZf8" height="400" width="400" />
 </p>
 
 ## 项目介绍
