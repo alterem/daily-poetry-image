@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/30 16:20:00
+  最近一次生成时间: 2024/4/30 18:16:42
 </p>
 <p align="center">
-云中君不见，竟夕自悲秋。
+富贵必从勤苦得，男儿须读五车书。
 </p>
 <p align="center">
-<<楚江怀古三首·其一>> • 马戴
+<<柏学士茅屋>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.D0gzBFpa6VnVZ_CHWF37" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.q6RvXs_.jLHI7aXx2lcD" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.I5fDppTIbg35ao8.vLIi" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.1eCYqZbmQm3kDa_umA91" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.AUYcE_qqaO.7_aAEmjxZ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.jd9sZyBLsdQmp3LWluvX" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.WTPe_kPYStS2bIT_WQla" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.eM2iRcRGOglZ097dZwyd" height="400" width="400" />
 </p>
 
 ## 项目介绍
