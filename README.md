@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/4/30 18:16:42
+  最近一次生成时间: 2024/4/30 22:15:43
 </p>
 <p align="center">
-富贵必从勤苦得，男儿须读五车书。
+人间万事，毫发常重泰山轻。
 </p>
 <p align="center">
-<<柏学士茅屋>> • 杜甫
+<<水调歌头·壬子三山被召陈端仁给事饮饯席上作>> • 辛弃疾
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.AUYcE_qqaO.7_aAEmjxZ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.jd9sZyBLsdQmp3LWluvX" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.WTPe_kPYStS2bIT_WQla" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.eM2iRcRGOglZ097dZwyd" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4._Wq65TIDnXT5YlaQftOu" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.g8xROr5hqCKflqNvhOn5" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.Do1.oCwidLpUSm2HUsaT" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.fb1jEJ2GAVeJ.svT64uJ" height="400" width="400" />
 </p>
 
 ## 项目介绍
