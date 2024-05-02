@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/3 02:20:27
+  最近一次生成时间: 2024/5/3 06:15:47
 </p>
 <p align="center">
-登高望蓬流，想象金银台。
+新竹高于旧竹枝，全凭老干为扶持。
 </p>
 <p align="center">
-<<游泰山六首>> • 李白
+<<新竹>> • 郑燮
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.uIkCXEtrgWm3Kw37pxik" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.F23rjQiOtvMLOQZoO2C_" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.R41H5PWZqvRND48.SO9I" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.UVOnOMBFtwiGSh98WY.e" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.oHRRSpfOagB4Fl4G_y3a" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.aBI7xHt5Hef4UaP4gQ19" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.IoSI3jMDOdDy16gtT7J3" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.9fbCQ3aKeIJBbJyEnoMs" height="400" width="400" />
 </p>
 
 ## 项目介绍
