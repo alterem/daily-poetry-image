@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/2 18:16:56
+  最近一次生成时间: 2024/5/2 20:29:51
 </p>
 <p align="center">
-日暮苍山远，天寒白屋贫。
+绿竹含新粉，红莲落故衣。
 </p>
 <p align="center">
-<<逢雪宿芙蓉山主人>> • 刘长卿
+<<山居即事>> • 王维
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.IFo1Itqz9v967qMnvErd" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.dxh17D_fe4wJmPJPPluu" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.MjotHrZOkaFO7hO5GlMb" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.NYHreFc3GXENnrk3r_0Z" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.X1lhU2jOUKKPsalpi4e9" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.Z9rZ7_OGO.J.9ot7dgtp" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.YpOzXCQcaWNFJwSty1E." height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.ouJzTYpDswHkFwCCfWRu" height="400" width="400" />
 </p>
 
 ## 项目介绍
