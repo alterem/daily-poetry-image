@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/2 16:19:51
+  最近一次生成时间: 2024/5/2 18:16:56
 </p>
 <p align="center">
-玉门山嶂几千重，山北山南总是烽。
+日暮苍山远，天寒白屋贫。
 </p>
 <p align="center">
-<<从军行七首>> • 王昌龄
+<<逢雪宿芙蓉山主人>> • 刘长卿
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.j880BYr1H_lhiTwdNSOa" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.sEnOVO_4cvSRHdFGFcA1" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.E632G2mcpVPLFKh8bZaD" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.OcXBsGSUTdQezNbfjawb" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.IFo1Itqz9v967qMnvErd" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.dxh17D_fe4wJmPJPPluu" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.MjotHrZOkaFO7hO5GlMb" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.NYHreFc3GXENnrk3r_0Z" height="400" width="400" />
 </p>
 
 ## 项目介绍
