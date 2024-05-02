@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/3 00:19:18
+  最近一次生成时间: 2024/5/3 02:20:27
 </p>
 <p align="center">
-日暖桑麻光似泼，风来蒿艾气如薰。
+登高望蓬流，想象金银台。
 </p>
 <p align="center">
-<<浣溪沙·软草平莎过雨新>> • 苏轼
+<<游泰山六首>> • 李白
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.rQJrHfJ6Dk_mZ6kXTZ3x" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.BL0poyL1a5rPO1ogZDSH" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.lloCqbENuMQzO07CDaCV" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.Xgcxq1UQ7ekcw5LYhDeW" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.uIkCXEtrgWm3Kw37pxik" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.F23rjQiOtvMLOQZoO2C_" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.R41H5PWZqvRND48.SO9I" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.UVOnOMBFtwiGSh98WY.e" height="400" width="400" />
 </p>
 
 ## 项目介绍
