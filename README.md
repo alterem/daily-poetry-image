@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/3 16:18:55
+  最近一次生成时间: 2024/5/3 18:16:42
 </p>
 <p align="center">
-虚空落泉千仞直，雷奔入江不暂息。
+梧桐叶上三更雨，叶叶声声是别离。
 </p>
 <p align="center">
-<<庐山瀑布>> • 徐凝
+<<鹧鸪天·一点残红欲尽时>> • 周紫芝
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.qggebFpx.kefKl9SXxS3" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.5XUT8YJ4N_qWyVImsIBW" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.BMS8zNgfTw2Tp4bUFlFh" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.arLD83crc6DYo2dSSeM6" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.R5ofllR42.6UjyegwiBn" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.9Go4SvZh2_gArlJoBrLl" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.eb1zRPapPO8t7qFggXqY" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.ZqncT.zJYQ9FPYR1lJa7" height="400" width="400" />
 </p>
 
 ## 项目介绍
