@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/4 00:20:18
+  最近一次生成时间: 2024/5/4 02:19:34
 </p>
 <p align="center">
-相顾无言，惟有泪千行。
+雨过月华生，冷彻鸳鸯浦。
 </p>
 <p align="center">
-<<江城子·乙卯正月二十日夜记梦>> • 苏轼
+<<甘草子·秋暮>> • 柳永
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.uh0kn9RmuHTo4Nq2RZYb" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1._nDTfSMhDarmErv1UZY8" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.0gr5aKS80y.yELoVePZp" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.p_mlBFN4ThPw5g.c_4c0" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.UciH3ldJs81Yh33w3C5w" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.W5rY7o.xrAJXegvaV.pU" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.KOKOApR1rfungNMZOXEV" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.24oTlbO6mWAMrzThPcdU" height="400" width="400" />
 </p>
 
 ## 项目介绍
