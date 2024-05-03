@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/4 02:19:34
+  最近一次生成时间: 2024/5/4 04:17:33
 </p>
 <p align="center">
-雨过月华生，冷彻鸳鸯浦。
+不畏浮云遮望眼，只缘身在最高层。
 </p>
 <p align="center">
-<<甘草子·秋暮>> • 柳永
+<<登飞来峰>> • 王安石
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.UciH3ldJs81Yh33w3C5w" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.W5rY7o.xrAJXegvaV.pU" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.KOKOApR1rfungNMZOXEV" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.24oTlbO6mWAMrzThPcdU" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.0rTIUMJQmjhZT.rJezMu" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.21jCO8pEconmrKa.ta6p" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.5z5TE7bxWsDLXR3z3kYn" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.No.fchFxJ7qOm7hyOilm" height="400" width="400" />
 </p>
 
 ## 项目介绍
