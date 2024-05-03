@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/4 04:17:33
+  最近一次生成时间: 2024/5/4 06:15:18
 </p>
 <p align="center">
-不畏浮云遮望眼，只缘身在最高层。
+朝辞白帝彩云间，千里江陵一日还。
 </p>
 <p align="center">
-<<登飞来峰>> • 王安石
+<<早发白帝城 / 白帝下江陵>> • 李白
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.0rTIUMJQmjhZT.rJezMu" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.21jCO8pEconmrKa.ta6p" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.5z5TE7bxWsDLXR3z3kYn" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.No.fchFxJ7qOm7hyOilm" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.iKyWMVJSsqmBwwTWdTs7" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.oVq.wDs5DkmJr7JDGeLT" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.R8fpnAjQapaxmiAZGXrT" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.wBA6HWO8NIB5fMhRQ0OK" height="400" width="400" />
 </p>
 
 ## 项目介绍
