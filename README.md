@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/3 09:10:43
+  最近一次生成时间: 2024/5/3 10:27:40
 </p>
 <p align="center">
-偶应非熊兆，尊为帝者师。
+断虹霁雨，净秋空，山染修眉新绿。
 </p>
 <p align="center">
-<<题太公钓渭图>> • 刘基
+<<念奴娇·断虹霁雨>> • 黄庭坚
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.RQLrxiu7P1xjXbsxGVKF" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.h8t384p8oa.6c5IxGvkF" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.KCWYmuwGOcjCgRBUdXFY" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.qVcRV1W5qIbn3hKW.AbT" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.6CFgf58ZtHkF_cPLIgaX" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.OpN3EM9chn.tX0JGYZML" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.iXKpVs81umLm6Pfnl0wj" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.7786SZcjxupHw8QxgJKv" height="400" width="400" />
 </p>
 
 ## 项目介绍
