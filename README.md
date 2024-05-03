@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/3 14:20:57
+  最近一次生成时间: 2024/5/3 16:18:55
 </p>
 <p align="center">
-儿童散学归来早，忙趁东风放纸鸢。
+虚空落泉千仞直，雷奔入江不暂息。
 </p>
 <p align="center">
-<<村居>> • 高鼎
+<<庐山瀑布>> • 徐凝
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.8Xt04Qcr1g3LKuu4pihU" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.dXkUMGtgOR4qdLdTj9aM" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.zOhRK_BjIdYvxTGgToEw" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.NW9JR2EnGxMkncj5edew" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.qggebFpx.kefKl9SXxS3" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.5XUT8YJ4N_qWyVImsIBW" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.BMS8zNgfTw2Tp4bUFlFh" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.arLD83crc6DYo2dSSeM6" height="400" width="400" />
 </p>
 
 ## 项目介绍
