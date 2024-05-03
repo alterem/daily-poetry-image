@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/3 06:15:47
+  最近一次生成时间: 2024/5/3 09:10:43
 </p>
 <p align="center">
-新竹高于旧竹枝，全凭老干为扶持。
+偶应非熊兆，尊为帝者师。
 </p>
 <p align="center">
-<<新竹>> • 郑燮
+<<题太公钓渭图>> • 刘基
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.oHRRSpfOagB4Fl4G_y3a" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.aBI7xHt5Hef4UaP4gQ19" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.IoSI3jMDOdDy16gtT7J3" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.9fbCQ3aKeIJBbJyEnoMs" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.RQLrxiu7P1xjXbsxGVKF" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.h8t384p8oa.6c5IxGvkF" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.KCWYmuwGOcjCgRBUdXFY" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.qVcRV1W5qIbn3hKW.AbT" height="400" width="400" />
 </p>
 
 ## 项目介绍
