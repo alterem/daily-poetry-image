@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/4 12:20:15
+  最近一次生成时间: 2024/5/4 14:19:54
 </p>
 <p align="center">
-望处雨收云断，凭阑悄悄，目送秋光。
+儿大诗书女丝麻，公但读书煮春茶。
 </p>
 <p align="center">
-<<玉蝴蝶·望处雨收云断>> • 柳永
+<<送王郎>> • 黄庭坚
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.hXlHJGWzx884hrUOwv8k" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.RLqaTcEMETHhqkHt.BHg" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.Be0K9ar29RaQgmmsTfDv" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.Q1HYW0MJ9.YwUsmRC6E9" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.WS3ZNdO06FvwXduscLt7" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.SvEAQb6zOsjartfAqUUr" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.HdvTwuQUq3pil.BkMykb" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.CyDiHOZChw7wrN7vx2fu" height="400" width="400" />
 </p>
 
 ## 项目介绍
