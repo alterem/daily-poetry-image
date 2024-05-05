@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/5 22:14:04
+  最近一次生成时间: 2024/5/6 00:19:41
 </p>
 <p align="center">
-暗尘随马去，明月逐人来。
+野云万里无城郭，雨雪纷纷连大漠。
 </p>
 <p align="center">
-<<正月十五夜>> • 苏味道
+<<古从军行>> • 李颀
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.VzcLE83wb7R_edS1PMsk" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.Y7alnLtAjuj5bgeufQE9" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.jCZSjeL_aWJ0DEzj5zyk" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.f6UqvaZ8YmWk7va3Jf_V" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.9uEaBrCLOHy7o.YgjEHZ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3._vBhejuUHxI8hEYa3WIZ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.FSNgfyINVjhmCXkSPc5e" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.816sXjz3uwaeoCGc.W_u" height="400" width="400" />
 </p>
 
 ## 项目介绍
