@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/6 02:18:51
+  最近一次生成时间: 2024/5/6 04:15:25
 </p>
 <p align="center">
-人老去西风白发，蝶愁来明日黄花。
+墉集欺猫鼠，林藏逐雀鹯。
 </p>
 <p align="center">
-<<折桂令·九日>> • 张可久
+<<中秋咏怀借杜子美秋日述怀一百韵和寄柳州假鸣桑先生>> • 徐威
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.FuIi11cXC_ZYx30flxee" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.FohknPb7bF6.zvsrpEZU" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.xHnltKwLlq542PXrYunU" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.onYFjyCdhhm7_1mx7TRk" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.C1dFY7slQs1cGPBxXI2X" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.MGzfS2swbPEGlAK4bp0I" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.Z_6fchPWNIk2hT5.qFMc" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.9f2xGUjDcWiL9ET071M." height="400" width="400" />
 </p>
 
 ## 项目介绍
