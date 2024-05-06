@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/7 00:22:00
+  最近一次生成时间: 2024/5/7 02:28:37
 </p>
 <p align="center">
-细读离骚还痛饮，饱看修竹何妨肉。
+香炉初上日，瀑水喷成虹。
 </p>
 <p align="center">
-<<满江红·山居即事>> • 辛弃疾
+<<彭蠡湖中望庐山>> • 孟浩然
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.Cxm7FrsJbAafPP2CyTgV" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.8i1T9oN5hHnwKCTxRz._" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.VKvDoxFpjK8Py0k7N3pT" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.MFHNEEBSnK60KhuCrsGb" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.MU_cRZ2TZLyg76nafA4V" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.9pxYA6fXQpWmAH7DlPB6" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.Xgwb_3pm0hW335TtMGTB" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.nLoh50JsLSfDISuHf99D" height="400" width="400" />
 </p>
 
 ## 项目介绍
