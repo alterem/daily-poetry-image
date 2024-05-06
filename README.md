@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/6 18:16:44
+  最近一次生成时间: 2024/5/6 20:30:02
 </p>
 <p align="center">
-西湖旧日，留连清夜，爱酒几将花误。
+抛家傍路，思量却是，无情有思。
 </p>
 <p align="center">
-<<永遇乐·探梅次时斋韵>> • 吴文英
+<<水龙吟·次韵章质夫杨花词>> • 苏轼
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.OnXV7O1CUPNYY4x5COB3" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.MOAoCFWiumiT77dzTZWb" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.9DYkqFFD.43e_vRqZNnk" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.AUiHvCqUKZHroOkQaZOi" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.hDugRny7K2Zp20TuZ8Sj" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.R8n.fSjTiPnLCKJwkVj1" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.58ktJTyGns9ZJyhEDfS." height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.au8kp..XpPQ90zMPynoJ" height="400" width="400" />
 </p>
 
 ## 项目介绍
