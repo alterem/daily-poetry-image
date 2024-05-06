@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/6 16:20:10
+  最近一次生成时间: 2024/5/6 18:16:44
 </p>
 <p align="center">
-墉集欺猫鼠，林藏逐雀鹯。
+西湖旧日，留连清夜，爱酒几将花误。
 </p>
 <p align="center">
-<<中秋咏怀借杜子美秋日述怀一百韵和寄柳州假鸣桑先生>> • 徐威
+<<永遇乐·探梅次时斋韵>> • 吴文英
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.HW_lL7Aa_0RIkSRH4ysN" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.sbbnMCzFbCPNtL_K0Zcs" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.nCOtx9ZWYEOZmFQ0MVKF" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.oMCgzxWugOtc0zl6_GCN" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.OnXV7O1CUPNYY4x5COB3" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.MOAoCFWiumiT77dzTZWb" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.9DYkqFFD.43e_vRqZNnk" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.AUiHvCqUKZHroOkQaZOi" height="400" width="400" />
 </p>
 
 ## 项目介绍
