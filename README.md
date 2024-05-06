@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/6 20:30:02
+  最近一次生成时间: 2024/5/7 00:22:00
 </p>
 <p align="center">
-抛家傍路，思量却是，无情有思。
+细读离骚还痛饮，饱看修竹何妨肉。
 </p>
 <p align="center">
-<<水龙吟·次韵章质夫杨花词>> • 苏轼
+<<满江红·山居即事>> • 辛弃疾
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.hDugRny7K2Zp20TuZ8Sj" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.R8n.fSjTiPnLCKJwkVj1" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.58ktJTyGns9ZJyhEDfS." height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.au8kp..XpPQ90zMPynoJ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.Cxm7FrsJbAafPP2CyTgV" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.8i1T9oN5hHnwKCTxRz._" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.VKvDoxFpjK8Py0k7N3pT" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.MFHNEEBSnK60KhuCrsGb" height="400" width="400" />
 </p>
 
 ## 项目介绍
