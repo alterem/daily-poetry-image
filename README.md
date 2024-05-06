@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/6 14:21:44
+  最近一次生成时间: 2024/5/6 16:20:10
 </p>
 <p align="center">
-烟水初销见万家，东风吹柳万条斜。
+墉集欺猫鼠，林藏逐雀鹯。
 </p>
 <p align="center">
-<<襄阳寒食寄宇文籍>> • 窦巩
+<<中秋咏怀借杜子美秋日述怀一百韵和寄柳州假鸣桑先生>> • 徐威
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.uL3fWaOtI.urwTYnQy28" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.XRLjmnU5.IuDO9EtH.8j" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1..3EzDPhT7bONIjzCjB6M" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.EkaQgSUask9Ip4XGDAB2" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.HW_lL7Aa_0RIkSRH4ysN" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.sbbnMCzFbCPNtL_K0Zcs" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.nCOtx9ZWYEOZmFQ0MVKF" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.oMCgzxWugOtc0zl6_GCN" height="400" width="400" />
 </p>
 
 ## 项目介绍
