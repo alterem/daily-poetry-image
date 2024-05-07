@@ -8,19 +8,18 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/7 22:15:06
+  最近一次生成时间: 2024/5/8 00:19:35
 </p>
 <p align="center">
-谁教岁岁红莲夜，两处沉吟各自知。
+孤眠鸾帐里，枉劳魂梦，夜夜飞扬。
 </p>
 <p align="center">
-<<鹧鸪天·元夕有所梦>> • 姜夔
+<<凤归云·闺怨>> • 佚名
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.LFqkKJYChDr_eMrZ2d60" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.8MjOZ3ko4Y9u19AHMLda" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.0NYyKkxS.dSIdTW.7xAJ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.OQLR9ZIGGTlMero7_ibk" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.YgKIzZ0Y5dGMedQJOoOe" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.BhVdZW21SWHmRTZ7x2jT" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.0xow0Skr06ZF2Ny.ROfr" height="400" width="400" />
 </p>
 
 ## 项目介绍
