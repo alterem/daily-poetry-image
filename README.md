@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/8 04:13:40
+  最近一次生成时间: 2024/5/8 06:15:36
 </p>
 <p align="center">
-不似秋光，只与离人照断肠。
+儿大诗书女丝麻，公但读书煮春茶。
 </p>
 <p align="center">
-<<减字木兰花·春月>> • 苏轼
+<<送王郎>> • 黄庭坚
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.JerxLCvuaUJ9ZCl7fEbr" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.SZIabLlNvl2YYqpY7I14" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.no77a6Zg6b1Ea6kFhIEz" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.I_UtjjDPaIyf6fbNIe.n" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.7rtb3Tz09aG2ETc8471M" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.OsDU4KgE4A8CenJb0EDB" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.lnwmNEQ.FQx6okIaNdeZ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.x2Gvqdg_oiguGPYm5iuw" height="400" width="400" />
 </p>
 
 ## 项目介绍
