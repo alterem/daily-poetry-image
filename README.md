@@ -8,18 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/8 00:19:35
+  最近一次生成时间: 2024/5/8 02:21:09
 </p>
 <p align="center">
-孤眠鸾帐里，枉劳魂梦，夜夜飞扬。
+卧龙跃马终黄土，人事音书漫寂寥。
 </p>
 <p align="center">
-<<凤归云·闺怨>> • 佚名
+<<阁夜>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.YgKIzZ0Y5dGMedQJOoOe" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.BhVdZW21SWHmRTZ7x2jT" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.0xow0Skr06ZF2Ny.ROfr" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.ljncKvXADsLZOW8Y2aiY" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.tN8kuGDFhtQ31S2CFvUj" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.Ps.2F9QB1kh.XGkTrTFt" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.PHxsiXT4kwILGMM8D6ue" height="400" width="400" />
 </p>
 
 ## 项目介绍
