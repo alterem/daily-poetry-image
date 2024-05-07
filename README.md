@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/7 02:28:37
+  最近一次生成时间: 2024/5/7 09:09:06
 </p>
 <p align="center">
-香炉初上日，瀑水喷成虹。
+听元宵，今岁嗟呀，愁也千家，怨也千家。
 </p>
 <p align="center">
-<<彭蠡湖中望庐山>> • 孟浩然
+<<古蟾宫·元宵>> • 王磐
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.MU_cRZ2TZLyg76nafA4V" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.9pxYA6fXQpWmAH7DlPB6" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.Xgwb_3pm0hW335TtMGTB" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.nLoh50JsLSfDISuHf99D" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.LlHzYj7u_RkXVH8zkC69" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.15mhKmR6JlbI4TEE4y.C" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.ieHIseuOqCFV96mAeQ.F" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.VidvsGtZ.K0z2XaGfSmv" height="400" width="400" />
 </p>
 
 ## 项目介绍
