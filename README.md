@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/7 09:09:06
+  最近一次生成时间: 2024/5/7 10:32:12
 </p>
 <p align="center">
-听元宵，今岁嗟呀，愁也千家，怨也千家。
+唯愿当歌对酒时，月光长照金樽里。
 </p>
 <p align="center">
-<<古蟾宫·元宵>> • 王磐
+<<把酒问月·故人贾淳令予问之>> • 李白
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.LlHzYj7u_RkXVH8zkC69" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.15mhKmR6JlbI4TEE4y.C" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.ieHIseuOqCFV96mAeQ.F" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.VidvsGtZ.K0z2XaGfSmv" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.67vwFHumu_HLu.9uZa4d" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.es.VdsimtHbfXNliIqxq" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.dA0OyMFDl72r6LfcmjEr" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.4CAvFUErjJswtf.MCmdZ" height="400" width="400" />
 </p>
 
 ## 项目介绍
