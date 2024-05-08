@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/8 18:17:46
+  最近一次生成时间: 2024/5/8 20:31:01
 </p>
 <p align="center">
-斟酌姮娥，九秋宫殿冷。
+香炉瀑布遥相望，回崖沓嶂凌苍苍。
 </p>
 <p align="center">
-<<齐天乐·中秋宿真定驿>> • 史达祖
+<<庐山谣寄卢侍御虚舟>> • 李白
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.CJHVdjRkOSfnw8ca2adY" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.sMeHBN_wCUFrWSKRpW8I" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.4Kv4dJ4Vi9iF6bQzFQoz" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1..GLhPlECqhHTSCWiPMMB" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.vFvnRCh5_xQ3paCA36Ic" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.ZV4b0Kb5niBYUD8a4A07" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.1CAuM3.eZrilfWkkRD3G" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.pEB5EbQPFomK2XhW3N5Q" height="400" width="400" />
 </p>
 
 ## 项目介绍
