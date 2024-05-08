@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/8 14:18:23
+  最近一次生成时间: 2024/5/8 18:17:46
 </p>
 <p align="center">
-松花酿酒，春水煎茶。
+斟酌姮娥，九秋宫殿冷。
 </p>
 <p align="center">
-<<人月圆·山中书事>> • 张可久
+<<齐天乐·中秋宿真定驿>> • 史达祖
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.eAugUBVkUe3Kk.T1dvT2" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.OWtfiJ2mNlrsPHN37TJQ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.T3JEKlKRwAnkUm6KqNsV" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.RDBAMeb0Eoq3RWHIbwRh" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.CJHVdjRkOSfnw8ca2adY" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.sMeHBN_wCUFrWSKRpW8I" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.4Kv4dJ4Vi9iF6bQzFQoz" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1..GLhPlECqhHTSCWiPMMB" height="400" width="400" />
 </p>
 
 ## 项目介绍
