@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/9 04:16:42
+  最近一次生成时间: 2024/5/9 06:14:40
 </p>
 <p align="center">
-读书不作儒生酸，跃马西入金城关。
+把酒送君天上去，琼玉琚玉佩軝鸿列。
 </p>
 <p align="center">
-<<送董元达>> • 谢逸
+<<满江红·送廖叔仁赴阙>> • 严羽
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.W4xDQZcCspDVZ0GYwJ39" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.S_rNeTdJBBAB2CXXyzTf" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2._mZ_MypRslEKahQBacZY" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.9xOY6XybsArrRwDPyOYi" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.Wyr6p1JuEZOntuvWtoBA" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.OzjVeJXAkroGx.QhiteM" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.GiSU8Xr79YaXfVxiYFI8" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.94ETs1.UC7YUmNGztj3h" height="400" width="400" />
 </p>
 
 ## 项目介绍
