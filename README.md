@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/8 06:15:36
+  最近一次生成时间: 2024/5/8 08:57:21
 </p>
 <p align="center">
-儿大诗书女丝麻，公但读书煮春茶。
+故人书报，莫因循、忘却莼鲈。
 </p>
 <p align="center">
-<<送王郎>> • 黄庭坚
+<<汉宫春·会稽秋风亭观雨>> • 辛弃疾
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.7rtb3Tz09aG2ETc8471M" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.OsDU4KgE4A8CenJb0EDB" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.lnwmNEQ.FQx6okIaNdeZ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.x2Gvqdg_oiguGPYm5iuw" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.gI8KIg.9a1X1CyjzMND_" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.mMmf2maeRixZDEsOgvDY" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.zeGyMlrLoP0Te3VNY2ST" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.QZ7IALYoD8JMO64wywoj" height="400" width="400" />
 </p>
 
 ## 项目介绍
