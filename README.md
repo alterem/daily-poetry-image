@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/8 22:18:26
+  最近一次生成时间: 2024/5/9 00:24:16
 </p>
 <p align="center">
-桃未芳菲杏未红，冲寒先喜笑东风。
+残柳宫前空露叶，夕阳川上浩烟波。
 </p>
 <p align="center">
-<<咏红梅花得“红”字>> • 曹雪芹
+<<经炀帝行宫>> • 刘沧
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.0hW1zygPmaB.4gbopKHu" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.1AzuDj52IQpxx9WAZ1lz" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.5kG_fSfqmC1xuvu8TmOJ" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.S4xOFT0lloqaobGoD.bj" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.HT.WTCnyRkParGVyqf_J" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.JCWUx_pXwzABrNwLvnRz" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.V_ySs6VMij5MFNBsPhGa" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.DFDnvxgcK5yv009HW2NO" height="400" width="400" />
 </p>
 
 ## 项目介绍
