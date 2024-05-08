@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/8 10:17:46
+  最近一次生成时间: 2024/5/8 12:17:08
 </p>
 <p align="center">
-哀哀父母，生我劳瘁。
+松下问童子，言师采药去。
 </p>
 <p align="center">
-<<蓼莪>> • 佚名
+<<寻隐者不遇 / 孙革访羊尊师诗>> • 贾岛
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.nFT.pp9j2VaLteYwEfUP" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.8Bof4gMQsp2C7y7ZRjHB" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.uJUin6ZpV7MnrsKGz9dp" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.5VOA09TSs35gTJN75Igl" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.DC87rKOPeR2Yv7yBdQdJ" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.kWtvLkHnDk3K4x86Rnpq" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.QfTnN0wE0AHBFXlX_GHR" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.os4.Xxex0DmBw9Ulf6k9" height="400" width="400" />
 </p>
 
 ## 项目介绍
