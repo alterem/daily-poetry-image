@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/9 00:24:16
+  最近一次生成时间: 2024/5/9 02:21:33
 </p>
 <p align="center">
-残柳宫前空露叶，夕阳川上浩烟波。
+高节志凌云，不敢当滕六。
 </p>
 <p align="center">
-<<经炀帝行宫>> • 刘沧
+<<薛宝钗·雪竹>> • 环山樵
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.HT.WTCnyRkParGVyqf_J" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.JCWUx_pXwzABrNwLvnRz" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.V_ySs6VMij5MFNBsPhGa" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.DFDnvxgcK5yv009HW2NO" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.6ly_NIk5C_ryJz7NKM4e" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.bpr9xHRVtyyRiGWTAk1h" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.0ci1oCMCl83A6iAvwDzt" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.T8PYqGElJfsblxvZR0Xb" height="400" width="400" />
 </p>
 
 ## 项目介绍
