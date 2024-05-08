@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/8 20:31:01
+  最近一次生成时间: 2024/5/8 22:18:26
 </p>
 <p align="center">
-香炉瀑布遥相望，回崖沓嶂凌苍苍。
+桃未芳菲杏未红，冲寒先喜笑东风。
 </p>
 <p align="center">
-<<庐山谣寄卢侍御虚舟>> • 李白
+<<咏红梅花得“红”字>> • 曹雪芹
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.vFvnRCh5_xQ3paCA36Ic" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.ZV4b0Kb5niBYUD8a4A07" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.1CAuM3.eZrilfWkkRD3G" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.pEB5EbQPFomK2XhW3N5Q" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.0hW1zygPmaB.4gbopKHu" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.1AzuDj52IQpxx9WAZ1lz" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.5kG_fSfqmC1xuvu8TmOJ" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.S4xOFT0lloqaobGoD.bj" height="400" width="400" />
 </p>
 
 ## 项目介绍
