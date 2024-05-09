@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/9 06:14:40
+  最近一次生成时间: 2024/5/9 10:29:38
 </p>
 <p align="center">
-把酒送君天上去，琼玉琚玉佩軝鸿列。
+辛勤三十日，母瘦雏渐肥。
 </p>
 <p align="center">
-<<满江红·送廖叔仁赴阙>> • 严羽
+<<燕诗示刘叟>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.Wyr6p1JuEZOntuvWtoBA" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.OzjVeJXAkroGx.QhiteM" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.GiSU8Xr79YaXfVxiYFI8" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.94ETs1.UC7YUmNGztj3h" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.QdDsb.7XhBRLDgDNvRl." height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.nTLZRUYU468wbrgXoAw4" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.iF_mFBO.j0ZoxVs6wQYx" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.qTvGYwap_oZs_iNZYWIL" height="400" width="400" />
 </p>
 
 ## 项目介绍
