@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/12 02:19:38
+  最近一次生成时间: 2024/5/12 04:16:16
 </p>
 <p align="center">
-六朝文物草连空，天淡云闲今古同。
+野童扶醉舞，山鸟助酣歌。
 </p>
 <p align="center">
-<<题宣州开元寺水阁阁下宛溪夹溪居人>> • 杜牧
+<<夏日浮舟过陈大水亭 / 浮舟过滕逸人别业>> • 孟浩然
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.V35O7DourPzOmK8oCyMX" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.gv1MMhtPL6hPoOs1kYqT" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.ATAWuBHNt_WUC8aHaYI1" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.Ehl1q2RO998kl.h5qrxs" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.pgdQRzvOvRtTOhma.QFc" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.3UyDRhoC2Jt8oi9s9a.r" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.3Smuvst7Mc15RDVfo9Xz" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.2.wlXMb2ZAoBNJeb2DIv" height="400" width="400" />
 </p>
 
 ## 项目介绍
