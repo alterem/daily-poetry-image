@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/11 14:19:33
+  最近一次生成时间: 2024/5/11 16:19:11
 </p>
 <p align="center">
-车遥遥兮马洋洋，追思君兮不可忘。
+娶妻无媒毋须恨，书中有女颜如玉。
 </p>
 <p align="center">
-<<车遥遥篇>> • 傅玄
+<<劝学诗>> • 赵恒
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.NxWjnM57AyFhsuCRV9xK" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.uud7zn1sxXvLSA73tVyw" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.KofLM4wjeYH0KMjyc0uK" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.X4wdfz3GZTkcoZNx8Cry" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.OlF5et3JwJMNX97K_yZG" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.WWfwwCQN_DK6pHUxtpuw" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.l0RfwFwTZMhey0tyKRl0" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.RKSjDh4ak_rI1os6zsGo" height="400" width="400" />
 </p>
 
 ## 项目介绍
