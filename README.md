@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/11 12:18:52
+  最近一次生成时间: 2024/5/11 14:19:33
 </p>
 <p align="center">
-妾身悔作商人妇，妾命当逢薄幸夫。
+车遥遥兮马洋洋，追思君兮不可忘。
 </p>
 <p align="center">
-<<阳春曲·闺怨>> • 徐再思
+<<车遥遥篇>> • 傅玄
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.Rzmls2B.mm5au_MMvjSL" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.ChDXM3_6ZImruv1yjlun" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.vjeRbeNHb1U_3iEFY3O6" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.R4vZiyqOMR49MvvDAWaO" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.NxWjnM57AyFhsuCRV9xK" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.uud7zn1sxXvLSA73tVyw" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.KofLM4wjeYH0KMjyc0uK" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.X4wdfz3GZTkcoZNx8Cry" height="400" width="400" />
 </p>
 
 ## 项目介绍
