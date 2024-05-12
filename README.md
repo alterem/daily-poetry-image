@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/13 02:21:17
+  最近一次生成时间: 2024/5/13 04:16:20
 </p>
 <p align="center">
-千层石树遥行路，一带山田放水声。
+共庆新年笑语哗，红岩士女赠梅花。
 </p>
 <p align="center">
-<<山行·布谷飞飞劝早耕>> • 姚鼐
+<<元旦口占用柳亚子怀人韵>> • 董必武
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.6XsgTY2QtmCzwF0vQCZN" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3..gT9EV.uWG1Mae3THxZc" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.7DnL0XQouW90t3QHAbY4" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.eh7LfTXc7o.cY2KWVjcW" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.t83y0h0zpjcPQLP6cRJa" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.WZh85SUfdly_nJVK8Epe" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.NcQgZeQeCyC2jcCo1yHJ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.atlAQ5rRT6tEuSP5ZOG6" height="400" width="400" />
 </p>
 
 ## 项目介绍
