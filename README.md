@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/13 04:16:20
+  最近一次生成时间: 2024/5/13 06:13:43
 </p>
 <p align="center">
-共庆新年笑语哗，红岩士女赠梅花。
+笑指吾庐何处是？一池荷叶小桥横。
 </p>
 <p align="center">
-<<元旦口占用柳亚子怀人韵>> • 董必武
+<<浣溪沙·初夏夜饮归>> • 陈继儒
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.t83y0h0zpjcPQLP6cRJa" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.WZh85SUfdly_nJVK8Epe" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.NcQgZeQeCyC2jcCo1yHJ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.atlAQ5rRT6tEuSP5ZOG6" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.yFnBbWc4AfeYIA4FxURL" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.zGlQ2glU9qcvXY5z5DOB" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.JmzROy0jq510i_g6hnvB" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.xQlgT52G1gRMu_PyUN8m" height="400" width="400" />
 </p>
 
 ## 项目介绍
