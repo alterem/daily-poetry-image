@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/13 09:11:22
+  最近一次生成时间: 2024/5/13 10:30:15
 </p>
 <p align="center">
-锄禾日当午，汗滴禾下土。
+竹色溪下绿，荷花镜里香。
 </p>
 <p align="center">
-<<古风二首 / 悯农二首>> • 李绅
+<<别储邕之剡中>> • 李白
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.OSVuFimxLMcQ2LZD96gw" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.rW5X0mRx0LSIs5MZMCGV" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.cuuuUYhA2A4IvZSYCvwJ" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.zobxZW9t7ugch3MjD3YH" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.euQe8Wo.H0u4PJzpYRPb" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.dlDkuipShqEVuXBlI3hm" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.pRE958lldOT8Fg27sxQd" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.sJwOzJ.u3_Nl_EHBoNlh" height="400" width="400" />
 </p>
 
 ## 项目介绍
