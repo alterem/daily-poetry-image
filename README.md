@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/13 06:13:43
+  最近一次生成时间: 2024/5/13 09:11:22
 </p>
 <p align="center">
-笑指吾庐何处是？一池荷叶小桥横。
+锄禾日当午，汗滴禾下土。
 </p>
 <p align="center">
-<<浣溪沙·初夏夜饮归>> • 陈继儒
+<<古风二首 / 悯农二首>> • 李绅
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.yFnBbWc4AfeYIA4FxURL" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.zGlQ2glU9qcvXY5z5DOB" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.JmzROy0jq510i_g6hnvB" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.xQlgT52G1gRMu_PyUN8m" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.OSVuFimxLMcQ2LZD96gw" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.rW5X0mRx0LSIs5MZMCGV" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.cuuuUYhA2A4IvZSYCvwJ" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.zobxZW9t7ugch3MjD3YH" height="400" width="400" />
 </p>
 
 ## 项目介绍
