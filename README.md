@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/15 04:17:57
+  最近一次生成时间: 2024/5/15 06:16:47
 </p>
 <p align="center">
-汉将归来虏塞空，旌旗初下玉关东。
+掩柴扉，谢他梅竹伴我冷书斋。
 </p>
 <p align="center">
-<<塞下曲>> • 戎昱
+<<玉芙蓉·雨窗小咏>> • 沈自晋
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.kTjBIgbxrTYdC4jJmrAp" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.aXSIGJcDMuSm49qQbhGh" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.7xyWSF_loSpkQ_QwmVVf" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.oDmslDk8fKNFowmZDigH" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.n9MVQBbHJWkE1gXW0.kG" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.k_PGRsfYSWZGe.O9_eK8" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.ESs8OROo93XXTDCCtSgE" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.CGAzNm.EPBdPFIB2NFX8" height="400" width="400" />
 </p>
 
 ## 项目介绍
