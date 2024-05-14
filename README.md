@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/14 18:18:52
+  最近一次生成时间: 2024/5/14 20:31:14
 </p>
 <p align="center">
-日啖荔枝三百颗，不辞长作岭南人。
+紫艳半开篱菊静，红衣落尽渚莲愁。
 </p>
 <p align="center">
-<<惠州一绝>> • 苏轼
+<<长安晚秋 / 秋望 / 秋夕>> • 赵嘏
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.wyPfKwNtUV9Az6TZkxcA" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.hylsP1IQUP2M60YypK7m" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.eaAhvSbwDshFko7Mk_Nb" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2._BznvKF6h01ZAAuzz5TB" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.mRhjZxsTogd79FaxXzKc" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.atgLx1JkMgLRexpwZ0QT" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.PpbP26ncbm40C7Tq47C4" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.7XBqjC3p6uYLY_0sXNXJ" height="400" width="400" />
 </p>
 
 ## 项目介绍
