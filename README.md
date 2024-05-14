@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/14 22:15:44
+  最近一次生成时间: 2024/5/15 00:22:04
 </p>
 <p align="center">
-草长莺飞二月天，拂堤杨柳醉春烟。
+尚想旧情怜婢仆，也曾因梦送钱财。
 </p>
 <p align="center">
-<<村居>> • 高鼎
+<<遣悲怀三首·其二>> • 元稹
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.gj6TEKjycjfnM06ibPuE" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.T.eaEBTqfkHqNtu1AI1c" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.pyJQYHuT6gSUpWyBlsEL" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.yqXJkeGV.RpJgOzsRf_1" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.MKdPuXG5k.34xEn_qRZw" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.LnmGS3u_krYBK15XAnbG" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.kcsy01uJVVR0XbsezTct" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.iIwCqK124m1xooKzHjSK" height="400" width="400" />
 </p>
 
 ## 项目介绍
