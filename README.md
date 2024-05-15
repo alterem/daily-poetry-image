@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/15 20:31:46
+  最近一次生成时间: 2024/5/15 22:17:23
 </p>
 <p align="center">
-关山别荡子，风月守空闺。
+来时父母知隔生，重著衣裳如送死。
 </p>
 <p align="center">
-<<昔昔盐>> • 薛道衡
+<<渡辽水>> • 王建
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.SY9clkgRNbN43EgA7Tp7" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.DxaznrzFB1E85Au4zTSI" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.KEQPqy55Cc.cFIYKWPJX" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.9JgMyrZ4U22IPEaXooZ1" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.Iqb1O3w4WglNekvXSbZK" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.1WRgexRb_.c2culBiM4f" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.z_wx10rQbtFTNCAdyNaL" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.1nnxaLGseE.Wryac2CrS" height="400" width="400" />
 </p>
 
 ## 项目介绍
