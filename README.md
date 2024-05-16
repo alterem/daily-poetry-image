@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/16 18:16:49
+  最近一次生成时间: 2024/5/16 20:30:59
 </p>
 <p align="center">
-不负东篱约，携尊过草堂。
+香炉初上日，瀑水喷成虹。
 </p>
 <p align="center">
-<<九日酬诸子>> • 妙信
+<<彭蠡湖中望庐山>> • 孟浩然
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.j0SAwzfpAEjO9G_eFIYh" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.eWjYHERPFyd1v1qwAKrk" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.uB4uJQppxDbVKI4GRwA2" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.eqP0awufc67pT_lSWig6" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2..6ZHDdWgi0zfThqnTnjS" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.0dom.RT3wqEEiLbjSVEw" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.qn_OaESbw_fxnpV8cFQB" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.vTF4OcD71jBz6MXdFUqY" height="400" width="400" />
 </p>
 
 ## 项目介绍
