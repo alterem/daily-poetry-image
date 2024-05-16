@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/16 20:30:59
+  最近一次生成时间: 2024/5/16 22:16:34
 </p>
 <p align="center">
-香炉初上日，瀑水喷成虹。
+风风雨雨梨花，窄索帘栊，巧小窗纱。
 </p>
 <p align="center">
-<<彭蠡湖中望庐山>> • 孟浩然
+<<折桂令·客窗清明>> • 乔吉
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2..6ZHDdWgi0zfThqnTnjS" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.0dom.RT3wqEEiLbjSVEw" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.qn_OaESbw_fxnpV8cFQB" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.vTF4OcD71jBz6MXdFUqY" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.cA83DPXginyR9ZjjaRZh" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.Byjcnf.ZZnhXZL.qqgLa" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.d7gGWHPP11h11F7g_m2B" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.negD4y3Mk4PkP1wwERE3" height="400" width="400" />
 </p>
 
 ## 项目介绍
