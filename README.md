@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/18 22:14:28
+  最近一次生成时间: 2024/5/19 00:18:53
 </p>
 <p align="center">
-前村深雪里，昨夜一枝开。
+草枯鹰眼疾，雪尽马蹄轻。
 </p>
 <p align="center">
-<<早梅>> • 齐己
+<<观猎>> • 王维
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.l.zUceLbHefwzhdPK9kp" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.tj8pyCTHfe_AW6no__7v" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.8.ZNjT33nJIQnaow9CoC" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.wQIrx.d3mTgZqsOPaWBQ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.UeXYIsU5eoglP3l5k99v" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.9fqw.MrLmGuCi.xMWXAY" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.Ju5VhVggZKORbGccIWsO" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2..TciIXTB_pnCIBr2o5MV" height="400" width="400" />
 </p>
 
 ## 项目介绍
