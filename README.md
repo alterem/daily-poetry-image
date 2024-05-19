@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/19 12:19:31
+  最近一次生成时间: 2024/5/19 14:20:15
 </p>
 <p align="center">
-拨雪寻春，烧灯续昼。
+涧影见松竹，潭香闻芰荷。
 </p>
 <p align="center">
-<<踏莎行·元夕>> • 毛滂
+<<夏日浮舟过陈大水亭 / 浮舟过滕逸人别业>> • 孟浩然
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.uyp3vDpLhIp9tfDQCoA7" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.kfJ11wzURN89Qg8WQzUv" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.QAn5YhXAPpI.gfZWQ3BA" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.pAtQ6l3SgvqpWF0MrtPX" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.Zev.WhGSSoAkdxJT3k86" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.pFl3dW7iQfn9Jt8hi0Au" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.hiOaQfjmyxevJmeEfT80" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.Slf_waKn4KqV22aRuyXy" height="400" width="400" />
 </p>
 
 ## 项目介绍
