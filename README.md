@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/19 22:14:02
+  最近一次生成时间: 2024/5/20 00:19:24
 </p>
 <p align="center">
-翻空白鸟时时见，照水红蕖细细香。
+寂历秋江渔火稀，起看残月映林微。
 </p>
 <p align="center">
-<<鹧鸪天·林断山明竹隐墙>> • 苏轼
+<<江宿>> • 汤显祖
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.7tAqaJynhxUzctAikC1d" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.IpigVW9Su9exkCnxBS83" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.BelqwJXdecz1BTuU0vgZ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.c8r2h.K0N7uFWjXNtStQ" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.1ZZAEWhhAQNGrmVmLbh8" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.dB160nAag1P1isj9l6OS" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.52IiPeV6S1yp.cv9Nx6z" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.LrkVur77bvHni1RJaQK5" height="400" width="400" />
 </p>
 
 ## 项目介绍
