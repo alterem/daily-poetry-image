@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/19 18:15:18
+  最近一次生成时间: 2024/5/19 22:14:02
 </p>
 <p align="center">
-今夜月明江上、酒初醒。
+翻空白鸟时时见，照水红蕖细细香。
 </p>
 <p align="center">
-<<南歌子·槐绿低窗暗>> • 黄庭坚
+<<鹧鸪天·林断山明竹隐墙>> • 苏轼
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.rAHPHq_K5UM7X56CgBDR" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.4g847QWHdQ2I_ckbZ.7w" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.oqQFmjQ.i5mbioPMa49R" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.WBbC0TTfkVgWSxwmMvOY" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.7tAqaJynhxUzctAikC1d" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.IpigVW9Su9exkCnxBS83" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.BelqwJXdecz1BTuU0vgZ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.c8r2h.K0N7uFWjXNtStQ" height="400" width="400" />
 </p>
 
 ## 项目介绍
