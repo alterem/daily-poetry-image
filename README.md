@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/20 00:19:24
+  最近一次生成时间: 2024/5/20 02:19:57
 </p>
 <p align="center">
-寂历秋江渔火稀，起看残月映林微。
+少室众峰几峰别，一峰晴见一峰雪。
 </p>
 <p align="center">
-<<江宿>> • 汤显祖
+<<少室雪晴送王宁>> • 李颀
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.1ZZAEWhhAQNGrmVmLbh8" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.dB160nAag1P1isj9l6OS" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.52IiPeV6S1yp.cv9Nx6z" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.LrkVur77bvHni1RJaQK5" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.DzuNuDgvb69G7J2WGJjd" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.TuWyiP_iRbRGKtyRs.Hn" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.FweL7N8DVtBAFhtRr3Lz" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.k0HPatqwsNKXSoGZYX.B" height="400" width="400" />
 </p>
 
 ## 项目介绍
