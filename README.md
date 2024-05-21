@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/21 14:22:31
+  最近一次生成时间: 2024/5/21 16:20:10
 </p>
 <p align="center">
-淡淡梅花香欲染，丝丝柳带露初干。
+新竹高于旧竹枝，全凭老干为扶持。
 </p>
 <p align="center">
-<<香菱咏月·其二>> • 曹雪芹
+<<新竹>> • 郑燮
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.bLiMU_HwtHsut5j8532j" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.0XV6GRYRVsFUQpzv9Ap4" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.aCPKP9Uh6Gda0ssyDXov" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.dBeDpyryrnU.wz8oD2nU" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.6RKkIlrKI3NoW57mEwfd" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.nmEEqCLtzXyJiC20DEkl" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.IuiRXeD_wl.BeYUkHhW4" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.5ZXDmwrKJZmmMZhSm2oN" height="400" width="400" />
 </p>
 
 ## 项目介绍
