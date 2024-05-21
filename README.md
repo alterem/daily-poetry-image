@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/22 00:20:25
+  最近一次生成时间: 2024/5/22 02:21:11
 </p>
 <p align="center">
-终罢斯结庐，慕陶直可庶。
+众鸟高飞尽，孤云独去闲。
 </p>
 <p align="center">
-<<东郊>> • 韦应物
+<<独坐敬亭山>> • 李白
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.NLE3jzo7nxwjGJ_QqRl8" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.8sqotevAoqLv9oiR5VR_" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.pKCz6eavUsUK18ox7yfR" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.MaM3RFu7438M9JXHRdxt" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3..rKfuRRw.86oMnTzimd6" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.4QhNgQSwCH6lIHJzyvwm" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.E9j43pEXCDNt.sJa4fwe" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.qjmyKFio1jLg5WwP8VZu" height="400" width="400" />
 </p>
 
 ## 项目介绍
