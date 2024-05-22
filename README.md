@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/22 09:10:44
+  最近一次生成时间: 2024/5/22 10:29:16
 </p>
 <p align="center">
-明月皎皎照我床，星汉西流夜未央。
+半亩方塘一鉴开，天光云影共徘徊。
 </p>
 <p align="center">
-<<燕歌行二首·其一>> • 曹丕
+<<活水亭观书有感二首·其一>> • 朱熹
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.DHYeDM0a0.xLqDGWSAwQ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.W6mjJ8Q_QvBDot.7x5OP" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.pUsTKSF_uF9Zd1sBtiZF" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.0u1W6GeyZyMAigRE00fx" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.KN.pe1zyEkWzx.PGuopu" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.xSf6w6SCxwrXmgBtSrsU" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.lHaEVyIaz_OLGZaGgVeS" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.iqkZmA69i6uNVbBaJYOM" height="400" width="400" />
 </p>
 
 ## 项目介绍
