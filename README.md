@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/22 14:22:12
+  最近一次生成时间: 2024/5/22 16:21:15
 </p>
 <p align="center">
-墉集欺猫鼠，林藏逐雀鹯。
+君若清路尘，妾若浊水泥；
 </p>
 <p align="center">
-<<中秋咏怀借杜子美秋日述怀一百韵和寄柳州假鸣桑先生>> • 徐威
+<<明月上高楼>> • 曹植
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.P3xrY9L3_g7bRMVZDbGa" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.ysP8yXSo1t2WcTkIvPRb" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.jU73XZbumY77.nGqFTEA" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.7Iw6VL2hnQKcAGkv6eSr" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.ui17Y9QmJtX4ckT8IEq1" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.Pj3v0JExBDfanm1FWBbf" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.XGK_Ka3QOJeB5n4XHhlC" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.v.lXEpAlarc_kWif_ZUc" height="400" width="400" />
 </p>
 
 ## 项目介绍
