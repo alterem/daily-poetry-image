@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/22 12:20:06
+  最近一次生成时间: 2024/5/22 14:22:12
 </p>
 <p align="center">
-清谈可以饱，梦想接无由。
+墉集欺猫鼠，林藏逐雀鹯。
 </p>
 <p align="center">
-<<洞庭湖阻风赠张十一署·时自阳山徙掾江陵>> • 韩愈
+<<中秋咏怀借杜子美秋日述怀一百韵和寄柳州假鸣桑先生>> • 徐威
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.0otR.JdRNihC_z3E8aTK" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2._qUQkWPZkTheEgPrxRtC" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.MYO7Bxu3KdrZSYjgjhu8" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.xh.wkvw0uJiIqA5Qj5RA" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.P3xrY9L3_g7bRMVZDbGa" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.ysP8yXSo1t2WcTkIvPRb" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.jU73XZbumY77.nGqFTEA" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.7Iw6VL2hnQKcAGkv6eSr" height="400" width="400" />
 </p>
 
 ## 项目介绍
