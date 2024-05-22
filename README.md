@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/22 16:21:15
+  最近一次生成时间: 2024/5/22 18:17:15
 </p>
 <p align="center">
-君若清路尘，妾若浊水泥；
+天涯静处无征战，兵气销为日月光。
 </p>
 <p align="center">
-<<明月上高楼>> • 曹植
+<<塞下曲四首·其一>> • 常建
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.ui17Y9QmJtX4ckT8IEq1" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.Pj3v0JExBDfanm1FWBbf" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.XGK_Ka3QOJeB5n4XHhlC" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.v.lXEpAlarc_kWif_ZUc" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.Fbi_rqjWM.RHg_vteUnf" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4._ZUxAbxvaow2IZa1lpf." height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.hH3bsf6DG8J_JgMYMprK" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.t7RLmpN.p8LcbHNRy7gZ" height="400" width="400" />
 </p>
 
 ## 项目介绍
