@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/23 09:10:02
+  最近一次生成时间: 2024/5/23 10:29:02
 </p>
 <p align="center">
-闻道黄龙戍，频年不解兵。
+高节志凌云，不敢当滕六。
 </p>
 <p align="center">
-<<杂诗三首·其三>> • 沈佺期
+<<薛宝钗·雪竹>> • 环山樵
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.fHuyndk_nKROwvLYbwDX" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.VrIpGITDnOpfU7qs.uXL" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.Lzhl8AIDkwZliLn0gggO" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.Gai9w01In5hA5Y2xdwNG" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.Zzsb97Za6c0z26KncuZ." height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.fPHbpLGrNKRCdSuxdBai" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.Q8PEHFZykbsOA5gN5IDt" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.rzstTEGSbbC_8COV10FH" height="400" width="400" />
 </p>
 
 ## 项目介绍
