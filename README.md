@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/24 04:18:02
+  最近一次生成时间: 2024/5/24 06:16:51
 </p>
 <p align="center">
-渔舟逐水爱山春，两岸桃花夹古津。
+意内称长短，终身荷圣情。
 </p>
 <p align="center">
-<<桃源行>> • 王维
+<<端午日赐衣>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.py.aLzRI508PpaIiqurc" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.zkrQLXzXDe.kJN0Vssad" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.rNTip0JOweDxMMTQZ709" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.oOKZKwNgAQ.mV6ZP4DaZ" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.TVyxk0qzN6Skp16IOptB" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.8K2YcY09ew.2N3cCJVBW" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.h7p2sPPyfImG.ePATrst" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.pyG6HyLO7ULjtVIGZdI0" height="400" width="400" />
 </p>
 
 ## 项目介绍
