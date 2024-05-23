@@ -8,19 +8,17 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/24 00:21:53
+  最近一次生成时间: 2024/5/24 02:21:07
 </p>
 <p align="center">
-云母屏风烛影深，长河渐落晓星沉。
+马蹀阏氏血，旗袅可汗头。
 </p>
 <p align="center">
-<<嫦娥>> • 李商隐
+<<送紫岩张先生北伐>> • 岳飞
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.JKQ5oDNWToCFQSl7mhYe" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.hL3x8jC.OSOjThOjdwPq" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.IxAmNqN8dlEBre2kRjxr" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.kJ0AcP9UfDchhRpOR7up" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.Vn9RKf38zuzG_m.EP0XO" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.bcnecNJkG8g4yZyEa0Ww" height="400" width="400" />
 </p>
 
 ## 项目介绍
