@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/23 12:18:51
+  最近一次生成时间: 2024/5/24 00:21:53
 </p>
 <p align="center">
-鞭个马儿归去也，心急马行迟。
+云母屏风烛影深，长河渐落晓星沉。
 </p>
 <p align="center">
-<<武陵春·走去走来三百里>> • 辛弃疾
+<<嫦娥>> • 李商隐
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.kWtcqZjcKoMPmv42B_1I" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.E7RBMKRGL2wjOKzUj5aF" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.mELEwTNRZ8AesMxrGdEp" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.klOHCs66PPJWdpDRyo2x" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.JKQ5oDNWToCFQSl7mhYe" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.hL3x8jC.OSOjThOjdwPq" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.IxAmNqN8dlEBre2kRjxr" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.kJ0AcP9UfDchhRpOR7up" height="400" width="400" />
 </p>
 
 ## 项目介绍
