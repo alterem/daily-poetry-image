@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/25 02:21:14
+  最近一次生成时间: 2024/5/25 04:17:20
 </p>
 <p align="center">
-试玉要烧三日满，辨材须待七年期。
+少小离家老大回，乡音无改鬓毛衰。
 </p>
 <p align="center">
-<<放言五首·其三>> • 白居易
+<<回乡偶书二首·其一>> • 贺知章
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.XO3DqZ.KnNCNgMxKI.SA" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.JcKXPR4VmcF8DUAfLG21" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.iw73XdwVMv7c6Vwft1mj" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.OEBFVpOxIzLR6wfzCTgx" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.c7xV4N2dfTOv42pmVWVz" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.oQ6hIlLG_1JG75OXYpjt" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.GQUwXXKLa_u7tBw.f.k1" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.uO.8_BHjFwFjLSKbCM17" height="400" width="400" />
 </p>
 
 ## 项目介绍
