@@ -8,19 +8,17 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/25 10:27:40
+  最近一次生成时间: 2024/5/25 12:18:32
 </p>
 <p align="center">
-青春几何时，黄鸟鸣不歇。
+牧童归去横牛背，短笛无腔信口吹。
 </p>
 <p align="center">
-<<江南春怀>> • 李白
+<<村晚>> • 雷震
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.KEyxzz4oZ9mFKlPXzrjo" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.7RvkDZ2fFO5_oO9H6r06" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.xEx0C0ZnH3McugfHBZMG" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.hpkD4NBNc05_8VHrrHkZ" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.XLOY.o3kSAPBr.M8Uaw7" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.Mw53OMAmadxSza8pH3gQ" height="400" width="400" />
 </p>
 
 ## 项目介绍
