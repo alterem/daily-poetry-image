@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/25 14:22:28
+  最近一次生成时间: 2024/5/25 16:19:42
 </p>
 <p align="center">
-簌簌衣巾落枣花，村南村北响缫车，牛衣古柳卖黄瓜。
+无由持一碗，寄与爱茶人。
 </p>
 <p align="center">
-<<浣溪沙·簌簌衣巾落枣花>> • 苏轼
+<<山泉煎茶有怀>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.OEXDkrVOhMHEmrxspNzT" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.LqV1tZ64YvyrDYHc1Zo5" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.p17loedcOVRf4ewh9aM0" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.8igldvX5kSIet8Fbn.jF" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.1AnaO3rsRyaER4fCc3I3" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.p7lCQkOA8zWwppblm1xT" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.I16S2yqYEddfwkX74ETB" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.Gydei6d0e76sHSV9g9wH" height="400" width="400" />
 </p>
 
 ## 项目介绍
