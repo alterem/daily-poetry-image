@@ -8,17 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/25 12:18:32
+  最近一次生成时间: 2024/5/25 14:22:28
 </p>
 <p align="center">
-牧童归去横牛背，短笛无腔信口吹。
+簌簌衣巾落枣花，村南村北响缫车，牛衣古柳卖黄瓜。
 </p>
 <p align="center">
-<<村晚>> • 雷震
+<<浣溪沙·簌簌衣巾落枣花>> • 苏轼
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.XLOY.o3kSAPBr.M8Uaw7" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.Mw53OMAmadxSza8pH3gQ" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.OEXDkrVOhMHEmrxspNzT" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.LqV1tZ64YvyrDYHc1Zo5" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.p17loedcOVRf4ewh9aM0" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.8igldvX5kSIet8Fbn.jF" height="400" width="400" />
 </p>
 
 ## 项目介绍
