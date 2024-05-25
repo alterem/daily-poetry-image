@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/25 18:16:40
+  最近一次生成时间: 2024/5/25 20:28:56
 </p>
 <p align="center">
-此意有谁知，恨与孤鸿远。
+倚阑凝望，独立渔翁满江雪。
 </p>
 <p align="center">
-<<生查子·秋来愁更深>> • 杨无咎
+<<六么令·次韵和贺方回金陵怀古鄱阳席上作>> • 李纲
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.CGzGhMI9876OOyezCukZ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.nL6WNfN3RvwzRrA8m_MQ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.CbI.jiIUSI299kqiG8fn" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.xUEqaByCQ.ztoVApZYhi" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.cf40SSl2IBdxfIJBqczz" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.dSSe7RSu1x2daPQ6QNWs" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.U7BcbQjlCpqrsShh5gQs" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.O6Y0tdvd5HwENEO3KKor" height="400" width="400" />
 </p>
 
 ## 项目介绍
