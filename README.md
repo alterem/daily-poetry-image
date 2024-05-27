@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/26 20:28:19
+  最近一次生成时间: 2024/5/27 09:11:57
 </p>
 <p align="center">
-看雪飞、苹底芦梢，未如鬓白。
+读书破万卷，下笔如有神。
 </p>
 <p align="center">
-<<瑞鹤仙·秋感>> • 吴文英
+<<奉赠韦左丞丈二十二韵>> • 杜甫
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.R_iOPf7wehO93TQWNVlb" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.5E_esT9FinRolAFHhFxI" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.Amcnt1MgS9n6hl9xpHsp" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.cCGkG5827a1F73ZsrdvH" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.gJIe.FC0J1uVPZJKEBfB" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.F_VOg.NTpxKG2Q6nYI3M" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.tFnSCmztytQUkakescvT" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.BhLdwkCTUS0uoN9_lf7." height="400" width="400" />
 </p>
 
 ## 项目介绍
