@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/27 12:20:17
+  最近一次生成时间: 2024/5/27 14:23:56
 </p>
 <p align="center">
-枕上诗书闲处好，门前风景雨来佳。
+安得五彩虹，驾天作长桥。
 </p>
 <p align="center">
-<<摊破浣溪沙·病起萧萧两鬓华>> • 李清照
+<<焦山望寥山>> • 李白
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.RWpA7f_KcD3QW4uanKbQ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.F9DNqS1UZKUq_U.0fgy1" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3._tFktpJaXPCExAfvG_eb" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.jV7kodo9W4HQx6FXssUY" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.VzmPbrlOVfH_HimqlRvl" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.9QyvM.4dz3rnD4kbumLH" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.aph84zk.4RiulrmpK4C4" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.Dv32LnRVH.2N70PA931a" height="400" width="400" />
 </p>
 
 ## 项目介绍
