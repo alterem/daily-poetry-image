@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/28 14:22:17
+  最近一次生成时间: 2024/5/28 16:22:22
 </p>
 <p align="center">
-庐山秀出南斗傍，屏风九叠云锦张。
+春来秋去相思在，秋去春来信息稀。
 </p>
 <p align="center">
-<<庐山谣寄卢侍御虚舟>> • 李白
+<<闺怨>> • 鱼玄机
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.e.cbc7u4zlDoRYwRB5NH" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.CHSpqZNzthBwkzkME2TZ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.huyAhmCYI52Wb9fhFL63" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.ISK.WDDSE6Mr4P7MqrKx" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.Xz0R9bHJ_wlOjDlQDwPy" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.hRu0W3R86OW0MAuAo9DC" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.0heke5_yJKy.PE_PxTQW" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.Z2.JECZVIfxILc754qjG" height="400" width="400" />
 </p>
 
 ## 项目介绍
