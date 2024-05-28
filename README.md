@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/28 16:22:22
+  最近一次生成时间: 2024/5/28 18:17:32
 </p>
 <p align="center">
-春来秋去相思在，秋去春来信息稀。
+日初出大如车盖，及日中则如盘盂，此不为远者小而近者大乎？
 </p>
 <p align="center">
-<<闺怨>> • 鱼玄机
+<<两小儿辩日>> • 列御寇
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.Xz0R9bHJ_wlOjDlQDwPy" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.hRu0W3R86OW0MAuAo9DC" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.0heke5_yJKy.PE_PxTQW" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.Z2.JECZVIfxILc754qjG" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.mxohVlNx04RYjvXUgOtX" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.i2x1uWNMwa2el0RH59Gv" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.4GNeYGzPw457pA.HkMNB" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.Tb47TD6eIwJpUTW8f.HX" height="400" width="400" />
 </p>
 
 ## 项目介绍
