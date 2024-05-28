@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/28 18:17:32
+  最近一次生成时间: 2024/5/28 20:30:44
 </p>
 <p align="center">
-日初出大如车盖，及日中则如盘盂，此不为远者小而近者大乎？
+十年旧梦无寻处，几度新春不在家。
 </p>
 <p align="center">
-<<两小儿辩日>> • 列御寇
+<<思佳客·癸卯除夜>> • 吴文英
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.mxohVlNx04RYjvXUgOtX" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.i2x1uWNMwa2el0RH59Gv" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.4GNeYGzPw457pA.HkMNB" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.Tb47TD6eIwJpUTW8f.HX" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.Fv4CmUw9DVVd3EwsCIdI" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.zJuLjTi3v7PKX3FPFYn." height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.qGm7vNdEyCXjlSIFVqL3" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.BpSIfxHpeBmNQ6i8OdqS" height="400" width="400" />
 </p>
 
 ## 项目介绍
