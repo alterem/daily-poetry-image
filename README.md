@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/28 12:21:34
+  最近一次生成时间: 2024/5/28 14:22:17
 </p>
 <p align="center">
-大漠西风急，黄榆凉叶飞。
+庐山秀出南斗傍，屏风九叠云锦张。
 </p>
 <p align="center">
-<<塞上曲>> • 田锡
+<<庐山谣寄卢侍御虚舟>> • 李白
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.NDqefclJzYIkvqpV1X8l" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.0fQZHL2Jlk_yO5tGauF0" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.srcs6KXJGiLHAXE0DHU9" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.Tyw.ysCQk974nykkUhIv" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.e.cbc7u4zlDoRYwRB5NH" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.CHSpqZNzthBwkzkME2TZ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.huyAhmCYI52Wb9fhFL63" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.ISK.WDDSE6Mr4P7MqrKx" height="400" width="400" />
 </p>
 
 ## 项目介绍
