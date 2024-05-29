@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/29 18:19:06
+  最近一次生成时间: 2024/5/29 22:17:01
 </p>
 <p align="center">
-操吴戈兮被犀甲，车错毂兮短兵接。
+诗界千年靡靡风，兵魂销尽国魂空。
 </p>
 <p align="center">
-<<国殇>> • 屈原
+<<读陆放翁集>> • 梁启超
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.pFb8APQA_6CT1aqobWB9" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.xVcOMU5g8JRi2znsqgC0" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.2iFTBh.q8eEeZ07x4woU" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.ZNmgVzc6lrYBzwwIQhh5" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.WnZ4gMTCjopq7rZ5u8z8" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.MY0zDSoOTmU3fjPPlXgY" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.1zyXQ5rHENBrVBHUg8wr" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.Jwr7N6pt_LfwLsN26rcP" height="400" width="400" />
 </p>
 
 ## 项目介绍
