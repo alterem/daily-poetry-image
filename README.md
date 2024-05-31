@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/31 16:21:03
+  最近一次生成时间: 2024/5/31 18:17:17
 </p>
 <p align="center">
-狎浪儿童，横江士女，笑指渔翁一叶轻。
+胡雁哀鸣夜夜飞，胡儿眼泪双双落。
 </p>
 <p align="center">
-<<沁园春·观潮>> • 吴伟业
+<<古从军行>> • 李颀
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.To4hK_ckDP7ZJ4i1iBAY" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.ZGyPzQXi.QK9j9Neo7gD" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2._00YSy75Y83o566EjALt" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.THG0FOm0PUapWOX82IcG" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.Z0ef2IsNKjeSOOeMKW7S" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4._mw2Cm.2r_XnAcJZbBCK" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.LqVAJGapDn0AA74AOvYO" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.HEZ6r9H6YrmBKuxP6sA9" height="400" width="400" />
 </p>
 
 ## 项目介绍
