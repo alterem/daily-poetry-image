@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/5/31 10:31:22
+  最近一次生成时间: 2024/5/31 12:21:07
 </p>
 <p align="center">
-漠漠萧萧，香冻梨花雨。
+渔舟逐水爱山春，两岸桃花夹古津。
 </p>
 <p align="center">
-<<点绛唇·送李琴泉>> • 吴大有
+<<桃源行>> • 王维
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.JZ8VHb2qRKK0nNBAE_3H" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.aF7GM.XDsZpZc8BNhrGb" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.bxNmXPAwHPzgCVZ0kw_J" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.T5oDi1TPrFJm.sbDuSt3" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.wEauYyTUTz7jFhcZ6oB0" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.ZFLcmjvgEdr0_SVemaZE" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.3L10r51FTDHXoCQQ74xj" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.nRgkBnuqe3BWixavERpC" height="400" width="400" />
 </p>
 
 ## 项目介绍
