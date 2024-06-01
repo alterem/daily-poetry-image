@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/1 12:19:19
+  最近一次生成时间: 2024/6/1 14:21:26
 </p>
 <p align="center">
-菱叶萦波荷飐风，荷花深处小船通。
+爆竹声中一岁除，春风送暖入屠苏。
 </p>
 <p align="center">
-<<采莲曲>> • 白居易
+<<元日>> • 王安石
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.D0YJlBe4sr4kdfdfrGq9" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.WxkkySxUO1r2IOL3HO_L" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.nzQYpZ7hEfI0QB3AGXPu" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.6OmtQqLIS9WpHSSiY36O" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.j7kJdxtjHtcWxIQgn2iQ" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.FJgwUb_oaLVOKd5tnuHQ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.YVfL42JPKc9glC4zlobR" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.oUp7uDkuDKLGbN5NTsz9" height="400" width="400" />
 </p>
 
 ## 项目介绍
