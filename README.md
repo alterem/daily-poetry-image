@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/1 16:19:44
+  最近一次生成时间: 2024/6/1 18:17:37
 </p>
 <p align="center">
-料因循误了，残毡拥雪，故人心眼。
+相逢意气为君饮，系马高楼垂柳边。
 </p>
 <p align="center">
-<<解连环·孤雁>> • 张炎
+<<少年行四首>> • 王维
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.BHXz1yakTMGY.MemHRNO" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.6eKO6PUH9CTlUBR84iv3" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.97qHHrl43jclWfyLDg.D" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.zdz.mE4Uq3nyrsG.rns." height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.GHHVxkbXl5RMQJ9.CQMc" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.eb89cTzmTyKioK24udBG" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.ZdvQb1a_A5HXfsT2xbDA" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.qhtbdgQOmGtfGMfFpOlg" height="400" width="400" />
 </p>
 
 ## 项目介绍
