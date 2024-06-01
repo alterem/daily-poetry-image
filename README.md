@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/1 10:34:35
+  最近一次生成时间: 2024/6/1 12:19:19
 </p>
 <p align="center">
-恰如灯下，故人万里，归来对影。
+菱叶萦波荷飐风，荷花深处小船通。
 </p>
 <p align="center">
-<<品令·茶词>> • 黄庭坚
+<<采莲曲>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2.6HvQ1ioJLSfrbVZqnHeY" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.YxxE53I70_62CL2lkuD2" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.kXj_mZSEGVGlLZsvlp5W" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.Xhm3dlbeWjJOUkg3vNlt" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.D0YJlBe4sr4kdfdfrGq9" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.WxkkySxUO1r2IOL3HO_L" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.nzQYpZ7hEfI0QB3AGXPu" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.6OmtQqLIS9WpHSSiY36O" height="400" width="400" />
 </p>
 
 ## 项目介绍
