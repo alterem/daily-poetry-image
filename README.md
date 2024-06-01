@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/1 09:15:50
+  最近一次生成时间: 2024/6/1 10:34:35
 </p>
 <p align="center">
-野径云俱黑，江船火独明。
+恰如灯下，故人万里，归来对影。
 </p>
 <p align="center">
-<<春夜喜雨>> • 杜甫
+<<品令·茶词>> • 黄庭坚
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.zfTK2MyDyQK3A5DwW3Cf" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.cCwb6ej13ZTZuhpLeymg" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.UmggPVY_tgKTMUrMh9cU" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.0qaLtEqO41wsi3sunF7F" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.6HvQ1ioJLSfrbVZqnHeY" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.YxxE53I70_62CL2lkuD2" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.kXj_mZSEGVGlLZsvlp5W" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.Xhm3dlbeWjJOUkg3vNlt" height="400" width="400" />
 </p>
 
 ## 项目介绍
