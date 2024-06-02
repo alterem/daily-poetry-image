@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/2 14:22:41
+  最近一次生成时间: 2024/6/2 16:18:54
 </p>
 <p align="center">
-露清枕簟藕花香，恨悠扬。
+田夫荷锄至，相见语依依。
 </p>
 <p align="center">
-<<虞美人·触帘风送景阳钟>> • 顾敻
+<<渭川田家>> • 王维
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.SZ2DQ97Wh7t9p8huQk88" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.Ngsxo7uRKW5e9J8vJpcc" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.o0tX_ONymESJzO88fEml" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3._dfEJ.sfwSc1IsmCeWIc" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.LBH06iZ9tR5liCWxBfoq" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.NEVD_jROCFR4B4OxYaOm" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1..5dYlW2dYYLGpgkYi5oS" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.KQIKKR2HDVfOCq0IKud2" height="400" width="400" />
 </p>
 
 ## 项目介绍
