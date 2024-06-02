@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/2 10:33:35
+  最近一次生成时间: 2024/6/2 12:18:51
 </p>
 <p align="center">
-欲往从之雪雰雰，侧身北望涕沾巾。
+冰合井泉月入闺，金缸青凝照悲啼。
 </p>
 <p align="center">
-<<四愁诗>> • 张衡
+<<夜坐吟>> • 李白
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.yKBxUGxPDQYTMtkgn05r" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.K3j0QPl_fple9o7wnxV." height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.TzqWzh0KFV_fQLWYDt.M" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.yCwsUdzWewtQDDByWyen" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.l7hvczQ3Pu3sR5yZQIvC" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.ngj9dMGZkyaw0JZXmee1" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.zH431PLOClcvYDJDvKua" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.VTeUnzJJ54sKKv.HjEBJ" height="400" width="400" />
 </p>
 
 ## 项目介绍
