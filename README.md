@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/1 20:29:16
+  最近一次生成时间: 2024/6/2 09:16:03
 </p>
 <p align="center">
-悠悠天宇旷，切切故乡情。
+问他有甚堪悲处？思量却也有悲时，重阳节近多风雨。
 </p>
 <p align="center">
-<<西江夜行>> • 张九龄
+<<踏莎行·庚戌中秋后二夕带湖篆冈小酌>> • 辛弃疾
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.q1eOpc1.UgQRwCDOtpgj" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.p3yfpdt0OqpqO25SWj.H" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.WW8sM101g_ifN6fJf0C6" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.sHTp8zwzu1Cl5oA1zmj9" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.a_e_BXlACwt_S2bQxkuM" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.3mZatm4GxRqx9DTWO_en" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.VdUHDivbGc6sHQegddXV" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.IQSGdiSNKtpZHv4q9x3J" height="400" width="400" />
 </p>
 
 ## 项目介绍
