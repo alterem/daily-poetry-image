@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/2 09:16:03
+  最近一次生成时间: 2024/6/2 10:33:35
 </p>
 <p align="center">
-问他有甚堪悲处？思量却也有悲时，重阳节近多风雨。
+欲往从之雪雰雰，侧身北望涕沾巾。
 </p>
 <p align="center">
-<<踏莎行·庚戌中秋后二夕带湖篆冈小酌>> • 辛弃疾
+<<四愁诗>> • 张衡
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.a_e_BXlACwt_S2bQxkuM" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.3mZatm4GxRqx9DTWO_en" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.VdUHDivbGc6sHQegddXV" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.IQSGdiSNKtpZHv4q9x3J" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.yKBxUGxPDQYTMtkgn05r" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.K3j0QPl_fple9o7wnxV." height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.TzqWzh0KFV_fQLWYDt.M" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.yCwsUdzWewtQDDByWyen" height="400" width="400" />
 </p>
 
 ## 项目介绍
