@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/2 16:18:54
+  最近一次生成时间: 2024/6/2 18:16:12
 </p>
 <p align="center">
-田夫荷锄至，相见语依依。
+凄凉别后两应同，最是不胜清怨月明中。
 </p>
 <p align="center">
-<<渭川田家>> • 王维
+<<虞美人·曲阑深处重相见>> • 纳兰性德
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.LBH06iZ9tR5liCWxBfoq" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.NEVD_jROCFR4B4OxYaOm" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1..5dYlW2dYYLGpgkYi5oS" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.KQIKKR2HDVfOCq0IKud2" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.ri7O9vsGjEAA3kVXEYPP" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.rXUzlqMPCiasdpevaeIk" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.rePOxRbbDifk52DE7p_a" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.qYDBoB5cI28L7FzTqj6c" height="400" width="400" />
 </p>
 
 ## 项目介绍
