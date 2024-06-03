@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/3 10:32:13
+  最近一次生成时间: 2024/6/3 12:21:36
 </p>
 <p align="center">
-蕙风如薰，甘露如醴。
+携手藕花湖上路。一霎黄梅细雨。
 </p>
 <p align="center">
-<<三都赋>> • 左思
+<<清平乐·夏日游湖>> • 朱淑真
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.1iB.zbieoiVw.chuF53G" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.zOmgEPRnVNVD9Z10hQuu" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.LY_uN.ZkXIgzK2OFG.7M" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.lfdHlWHv5ANeig5hTawt" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.4xpVDLNYc_HqYYpKPhXp" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.kHxGNtVDAXyhRbaci1kN" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.c8UgSu2WU38OHBtRYbSs" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.0UeHVk6KwkX.g85hUl7H" height="400" width="400" />
 </p>
 
 ## 项目介绍
