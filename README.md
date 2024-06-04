@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/4 16:20:43
+  最近一次生成时间: 2024/6/4 18:18:15
 </p>
 <p align="center">
-三月休听夜雨，如今不是催花。
+三更灯火五更鸡，正是男儿读书时。
 </p>
 <p align="center">
-<<清平乐·采芳人杳>> • 张炎
+<<劝学诗>> • 颜真卿
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG2.2ieCnaTFDoPPzFroWMzA" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.tvpRTUhr8gJrjaveG04t" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2..N6ZEHIkIBvFhdAKLqfY" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.TC2_f4yF7fJJYWa8UaOE" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.oF6.fJuhea_b70lxhrdm" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.RQlDpPR8Nk_Or01hnZck" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.lquKfdjfqEKnjZrKqMrp" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.ow8QHpJgAVnmZMAwu936" height="400" width="400" />
 </p>
 
 ## 项目介绍
