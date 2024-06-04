@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/4 10:31:40
+  最近一次生成时间: 2024/6/4 12:19:23
 </p>
 <p align="center">
-春风桃李花开日，秋雨梧桐叶落时。
+海风吹不断，江月照还空。
 </p>
 <p align="center">
-<<长恨歌>> • 白居易
+<<望庐山瀑布水二首>> • 李白
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.QNKQawDo8AKcAAtVu1hi" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.IPiXlYEbp9saj0brTIE4" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.LbMyS8NarIhZhF8elMbI" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.Nzr.3jl8JJM9UNmFBKV3" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.vJwFf0eU.jvdNZ2mreJw" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.8imDmJdjC_lmZbZfpsV5" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.WOLByFxFVyJyeZsJY2TW" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.Tx6mtJeuOZqraLcD_0n." height="400" width="400" />
 </p>
 
 ## 项目介绍
