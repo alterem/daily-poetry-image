@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/4 18:18:15
+  最近一次生成时间: 2024/6/4 20:31:33
 </p>
 <p align="center">
-三更灯火五更鸡，正是男儿读书时。
+尘中见月心亦闲，况是清秋仙府间。
 </p>
 <p align="center">
-<<劝学诗>> • 颜真卿
+<<八月十五夜桃源玩月>> • 刘禹锡
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG1.oF6.fJuhea_b70lxhrdm" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.RQlDpPR8Nk_Or01hnZck" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.lquKfdjfqEKnjZrKqMrp" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.ow8QHpJgAVnmZMAwu936" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.mCo4f0Zdp8BkCkf516F1" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.xVgp9dR4lkaF.QfXtQpd" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1._yDw45c8TfUkYTeJruF." height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.tthvNcYPi5GPjtIW4OD3" height="400" width="400" />
 </p>
 
 ## 项目介绍
