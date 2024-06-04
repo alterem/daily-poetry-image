@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/4 09:12:27
+  最近一次生成时间: 2024/6/4 10:31:40
 </p>
 <p align="center">
-安得五彩虹，驾天作长桥。
+春风桃李花开日，秋雨梧桐叶落时。
 </p>
 <p align="center">
-<<焦山望寥山>> • 李白
+<<长恨歌>> • 白居易
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.SETmXqtPsUGTKaplMGkq" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.mMRJ31Xte7ZzZZuIOJJB" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.UdHazUV47jUQAtp2kkvO" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.SoNwoXLS8I10niWpWnpF" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.QNKQawDo8AKcAAtVu1hi" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.IPiXlYEbp9saj0brTIE4" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.LbMyS8NarIhZhF8elMbI" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.Nzr.3jl8JJM9UNmFBKV3" height="400" width="400" />
 </p>
 
 ## 项目介绍
