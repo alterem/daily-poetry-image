@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/4 12:19:23
+  最近一次生成时间: 2024/6/4 14:22:36
 </p>
 <p align="center">
-海风吹不断，江月照还空。
+云尽月如练，水凉风似秋。
 </p>
 <p align="center">
-<<望庐山瀑布水二首>> • 李白
+<<荆南夏夜水楼怀昭丘直上人云梦李莘>> • 欧阳詹
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.vJwFf0eU.jvdNZ2mreJw" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.8imDmJdjC_lmZbZfpsV5" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.WOLByFxFVyJyeZsJY2TW" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.Tx6mtJeuOZqraLcD_0n." height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.kfbfVqorvfBDcog4WzO7" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.Hqdais0oM1k9c4kKYYt6" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.w6GIgmegFf488UdPn5d2" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.zRMDlIP7ak7QPI50xGOV" height="400" width="400" />
 </p>
 
 ## 项目介绍
