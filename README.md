@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/5 18:17:31
+  最近一次生成时间: 2024/6/5 20:31:41
 </p>
 <p align="center">
-雨里鸡鸣一两家，竹溪村路板桥斜。
+最喜小儿亡赖，溪头卧剥莲蓬。
 </p>
 <p align="center">
-<<雨过山村>> • 王建
+<<清平乐·村居>> • 辛弃疾
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.gXae4TQU7.K1cDcBNd4h" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1._O0kA9xbW0BJGjcPIFzp" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.MIzTXlbhgo4etQLmLYKl" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.G3hNCvNLxlDX8S9iC5U." height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.bt0v65QehgvsFwwowfTY" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.ki_3QPJH29zAEfgZmpkG" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.S0IH3BTj3Yzzk4xIRHJi" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.I2td_FcRMuh.oolS4wPe" height="400" width="400" />
 </p>
 
 ## 项目介绍
