@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/5 12:22:15
+  最近一次生成时间: 2024/6/5 14:23:04
 </p>
 <p align="center">
-小溪清水平如镜，一叶飞来浪细生。
+娶妻无媒毋须恨，书中有女颜如玉。
 </p>
 <p align="center">
-<<秋行>> • 徐玑
+<<劝学诗>> • 赵恒
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG2.QJRX43uYlH1GBoz0CXMV" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.34PuPbk1SzQTrI2sfGGB" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.E_yo9mSxmWsAwugDbA1r" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.8DD_FmOY9Mi2JFTH8cFv" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.Bj4_eNbIS5sUQgXXlH24" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.IK9CgPpXAY8..RXG30CV" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.X1c9hS3Q7RnsPPebqf1b" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.YK_PNJNK63LTr5tTe8.M" height="400" width="400" />
 </p>
 
 ## 项目介绍
