@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/4 20:31:33
+  最近一次生成时间: 2024/6/5 09:11:56
 </p>
 <p align="center">
-尘中见月心亦闲，况是清秋仙府间。
+落日胡尘未断，西风塞马空肥。
 </p>
 <p align="center">
-<<八月十五夜桃源玩月>> • 刘禹锡
+<<木兰花慢·席上送张仲固帅兴元>> • 辛弃疾
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG1.mCo4f0Zdp8BkCkf516F1" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.xVgp9dR4lkaF.QfXtQpd" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1._yDw45c8TfUkYTeJruF." height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.tthvNcYPi5GPjtIW4OD3" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.rGhJpJoSOCfGVTSpqbbf" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.VNvijdBhF8xCOOqR_IzZ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.yTqdJbLZlcPv4h0xWf3f" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.MDl6Mf1ip4Q9IZkIJct4" height="400" width="400" />
 </p>
 
 ## 项目介绍
