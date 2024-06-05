@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/5 16:20:26
+  最近一次生成时间: 2024/6/5 18:17:31
 </p>
 <p align="center">
-残霞夕照西湖好，花坞苹汀，十顷波平，野岸无人舟自横。
+雨里鸡鸣一两家，竹溪村路板桥斜。
 </p>
 <p align="center">
-<<采桑子·残霞夕照西湖好>> • 欧阳修
+<<雨过山村>> • 王建
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.MFRl.hDD4bsOkgEKq1yj" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.FuECnUDUNrHVlKCbDb3n" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.NJhvoSCljoz4TM0WvTEY" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.TmCjG12ubPsY8Z10.IZy" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.gXae4TQU7.K1cDcBNd4h" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1._O0kA9xbW0BJGjcPIFzp" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.MIzTXlbhgo4etQLmLYKl" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.G3hNCvNLxlDX8S9iC5U." height="400" width="400" />
 </p>
 
 ## 项目介绍
