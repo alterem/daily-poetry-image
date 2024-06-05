@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/5 10:31:43
+  最近一次生成时间: 2024/6/5 12:22:15
 </p>
 <p align="center">
-汉家天马出蒲梢，苜蓿榴花遍近郊。
+小溪清水平如镜，一叶飞来浪细生。
 </p>
 <p align="center">
-<<茂陵>> • 李商隐
+<<秋行>> • 徐玑
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG4.urWYwrCKIZkTYN8RAIHr" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.N.C1fxQdDiHWt_akS8Yo" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.Va81DDAyZI5PmeEtFMpL" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.8JPGBZTTnNpmdHJhdkhW" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.QJRX43uYlH1GBoz0CXMV" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.34PuPbk1SzQTrI2sfGGB" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.E_yo9mSxmWsAwugDbA1r" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.8DD_FmOY9Mi2JFTH8cFv" height="400" width="400" />
 </p>
 
 ## 项目介绍
