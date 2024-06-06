@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/6 09:11:50
+  最近一次生成时间: 2024/6/6 10:31:19
 </p>
 <p align="center">
-细读离骚还痛饮，饱看修竹何妨肉。
+归鸿声断残云碧。背窗雪落炉烟直。
 </p>
 <p align="center">
-<<满江红·山居即事>> • 辛弃疾
+<<菩萨蛮·归鸿声断残云碧>> • 李清照
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.P_z0eYXiBqHtjCYIeuFH" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.ZZwd33SBPsuvIcegYJDi" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.HnaczuHbVsJP7yufKU03" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.Oil470zhXrlTYBh7zTu." height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.wLDP.4Kd7C6oLDQkipYc" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.xuLynupfsTiMNTU5yqdr" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.knfGcQBUGQG7JsP5nZD3" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.rIwR0rHKV6svtwvYDhT_" height="400" width="400" />
 </p>
 
 ## 项目介绍
