@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/6 14:22:52
+  最近一次生成时间: 2024/6/6 16:20:57
 </p>
 <p align="center">
-柳色黄金嫩，梨花白雪香。
+独写菖蒲竹叶杯，蓬城芳草踏初回。
 </p>
 <p align="center">
-<<宫中行乐词八首>> • 李白
+<<午日处州禁竞渡>> • 汤显祖
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.tl7PtR1pM06BpYn7_F8_" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.pv0MLO9x57kYHviFXvtq" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.XK.VdG0wkL_AR2ccys5C" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3._JKs2cqPiHOZqB2uJrRn" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.etRCjBDqkYDYVJKHCivd" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.6r.OjK1NfqW.VxtwddAq" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.GCnLpv1O7ppj4C2_XCOM" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.9X.HSzSNsYKQ42DrgJTp" height="400" width="400" />
 </p>
 
 ## 项目介绍
