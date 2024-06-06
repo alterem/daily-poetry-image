@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/6 22:16:14
+  最近一次生成时间: 2024/6/7 00:21:26
 </p>
 <p align="center">
-朝看水东流，暮看日西坠。
+未收天子河湟地，不拟回头望故乡。
 </p>
 <p align="center">
-<<明日歌>> • 钱福
+<<少年行四首·其三>> • 令狐楚
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.ZvNDhqqJh5o8FKZMaOE5" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.jH.y.1iwNFwir9yxgKUB" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.dJH5FPnnYY_yceMB7nEy" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.cMiJJRx5FsN.zgKjr.5P" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.M8LVViZXUUymp3Jj5gjB" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.EIhNGA6lX8LplHvmWO6F" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.XlvYdVVimH9_J1F8CApr" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.UE5kMW_yeEIwynvtxzIA" height="400" width="400" />
 </p>
 
 ## 项目介绍
