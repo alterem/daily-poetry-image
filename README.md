@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/6 18:17:27
+  最近一次生成时间: 2024/6/6 20:31:42
 </p>
 <p align="center">
-父老得书知我在，小轩临水为君开。
+香炉瀑布遥相望，回崖沓嶂凌苍苍。
 </p>
 <p align="center">
-<<送贾讷倅眉>> • 苏轼
+<<庐山谣寄卢侍御虚舟>> • 李白
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.8jpPuLOKb4FmTTfkQ9za" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.btC3uyDZ8WAfGsWyEq.M" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.jrQnIR.rntxict_wgT8l" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.a92DNfdMt2xwCF8UTU3a" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.DL8ZgVbhgA6drqMNgoTI" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.HgxnsPYAevjzi8vett72" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.fUGYyUVqCWKmnbR3vZ69" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.l9lEzH_aZGuscKg1AZfN" height="400" width="400" />
 </p>
 
 ## 项目介绍
