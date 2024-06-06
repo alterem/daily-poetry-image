@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/6 20:31:42
+  最近一次生成时间: 2024/6/6 22:16:14
 </p>
 <p align="center">
-香炉瀑布遥相望，回崖沓嶂凌苍苍。
+朝看水东流，暮看日西坠。
 </p>
 <p align="center">
-<<庐山谣寄卢侍御虚舟>> • 李白
+<<明日歌>> • 钱福
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.DL8ZgVbhgA6drqMNgoTI" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.HgxnsPYAevjzi8vett72" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.fUGYyUVqCWKmnbR3vZ69" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.l9lEzH_aZGuscKg1AZfN" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.ZvNDhqqJh5o8FKZMaOE5" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.jH.y.1iwNFwir9yxgKUB" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.dJH5FPnnYY_yceMB7nEy" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.cMiJJRx5FsN.zgKjr.5P" height="400" width="400" />
 </p>
 
 ## 项目介绍
