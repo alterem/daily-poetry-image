@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/7 04:18:52
+  最近一次生成时间: 2024/6/7 06:15:11
 </p>
 <p align="center">
-林外鸣鸠春雨歇，屋头初日杏花繁。
+日啖荔枝三百颗，不辞长作岭南人。
 </p>
 <p align="center">
-<<田家>> • 欧阳修
+<<惠州一绝>> • 苏轼
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.qfW63BP9zGqByO1nb7Mb" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.8mRcANfqlMyXoDg2x4VO" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.j.xKHu94ZQVTuxYPKmaX" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.XlI1glVjISR1BWRW9Xwx" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.yaIbek3Vc5cxE9DrhKEl" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG2.I80qwyGKd62tXyY6KeP." height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2.uC3lFDx40U0RlHTDnS18" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.MPss7iFID9Aex7ftcXdB" height="400" width="400" />
 </p>
 
 ## 项目介绍
