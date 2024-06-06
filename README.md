@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/5 20:31:41
+  最近一次生成时间: 2024/6/6 09:11:50
 </p>
 <p align="center">
-最喜小儿亡赖，溪头卧剥莲蓬。
+细读离骚还痛饮，饱看修竹何妨肉。
 </p>
 <p align="center">
-<<清平乐·村居>> • 辛弃疾
+<<满江红·山居即事>> • 辛弃疾
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.bt0v65QehgvsFwwowfTY" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.ki_3QPJH29zAEfgZmpkG" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.S0IH3BTj3Yzzk4xIRHJi" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.I2td_FcRMuh.oolS4wPe" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.P_z0eYXiBqHtjCYIeuFH" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.ZZwd33SBPsuvIcegYJDi" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.HnaczuHbVsJP7yufKU03" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.Oil470zhXrlTYBh7zTu." height="400" width="400" />
 </p>
 
 ## 项目介绍
