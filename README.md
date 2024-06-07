@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/7 12:20:23
+  最近一次生成时间: 2024/6/7 14:23:57
 </p>
 <p align="center">
-霜殒芦花泪湿衣，白头无复倚柴扉。
+一笛当楼，谢娘悬泪立风前。
 </p>
 <p align="center">
-<<思母>> • 与恭
+<<玉蝴蝶·晚雨未摧宫树>> • 史达祖
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.6k4zu1N3CYmGQ3zG.FXE" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.aBXf1nuFjY0xPHcmoibi" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.lCkW9VdXyvQzd0Y__F76" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG2.vJtyKCCmXqUNg1Z3Q1Y9" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.ARcKkOybtMzg5FD_4tof" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.wV92Lxxp4n7q6NLRd.gs" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.s5QR10N8yJYeCR.2ZZV7" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.AoiBkgWNNAkKLPvxr57s" height="400" width="400" />
 </p>
 
 ## 项目介绍
