@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/7 16:20:54
+  最近一次生成时间: 2024/6/7 18:17:43
 </p>
 <p align="center">
-柳絮风轻，梨花雨细。
+悲怀感物来，泣涕应情陨。
 </p>
 <p align="center">
-<<踏莎行·柳絮风轻>> • 谢逸
+<<悼亡诗三首>> • 潘安
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.QfL.D4NSZnYqpoUzfSO6" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.QTngs36aIHw8ez5YBwho" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.q4cAu0VFV3bkuGPemxJN" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.jERXrVwLDdyzkI48OyHv" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.jFaVQp2lMGMoZzhiXr5Z" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.XQiTBRm0Y.KNjw27dUqg" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.wjWrKFLJeJABt8BfhrIe" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.rA23r2dbki5mjmTEjIz8" height="400" width="400" />
 </p>
 
 ## 项目介绍
