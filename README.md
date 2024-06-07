@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/7 22:16:35
+  最近一次生成时间: 2024/6/8 00:19:41
 </p>
 <p align="center">
-感君缠绵意，系在红罗襦。
+一身报国有万死，双鬓向人无再青。
 </p>
 <p align="center">
-<<节妇吟·寄东平李司空师道>> • 张籍
+<<夜泊水村>> • 陆游
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.Z16srI2r98NS4jojcIrl" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.mtnRNlqqqG6rE4bewtwv" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.0iRZyTPVv6a8I77IILUJ" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.RWcllhO3SseaJCXH.mjl" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.HFyoXL6Nakz2wHrrJDPs" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.i.IrYbcRDQ2T0LZVY2s4" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1..o7B9iSxryjx24UM7DiL" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG1.Bk3ZB1uJiDQvHmRUBnTS" height="400" width="400" />
 </p>
 
 ## 项目介绍
