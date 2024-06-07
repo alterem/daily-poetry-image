@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/7 14:23:57
+  最近一次生成时间: 2024/6/7 16:20:54
 </p>
 <p align="center">
-一笛当楼，谢娘悬泪立风前。
+柳絮风轻，梨花雨细。
 </p>
 <p align="center">
-<<玉蝴蝶·晚雨未摧宫树>> • 史达祖
+<<踏莎行·柳絮风轻>> • 谢逸
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG3.ARcKkOybtMzg5FD_4tof" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.wV92Lxxp4n7q6NLRd.gs" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.s5QR10N8yJYeCR.2ZZV7" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.AoiBkgWNNAkKLPvxr57s" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.QfL.D4NSZnYqpoUzfSO6" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.QTngs36aIHw8ez5YBwho" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.q4cAu0VFV3bkuGPemxJN" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.jERXrVwLDdyzkI48OyHv" height="400" width="400" />
 </p>
 
 ## 项目介绍
