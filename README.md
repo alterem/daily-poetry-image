@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/13 18:52:59
+  最近一次生成时间: 2024/6/13 20:32:06
 </p>
 <p align="center">
-春雨断桥人不度，小舟撑出柳阴来。
+应倾谢女珠玑箧，尽写檀郎锦绣篇。
 </p>
 <p align="center">
-<<春游湖>> • 徐俯
+<<七夕>> • 罗隐
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4.wqmYOsdqE37LWdFJRqhd" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.yqqw6ZdCmHU3MU9aY3OQ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.U1fBSbOw7SuL8EU8QaWj" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.UHE9JuZfEvrPnj5Yh7Jv" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.kMVIxGUL6lDruTH4TqBR" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.Ef2BpESOzi9Ej7kk1VeT" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.awi07woa8f3aktQ1zv2S" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.YitAFm1LzoRKNzzDviAr" height="400" width="400" />
 </p>
 
 ## 项目介绍
