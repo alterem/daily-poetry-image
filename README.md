@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/8 00:19:41
+  最近一次生成时间: 2024/6/13 18:52:59
 </p>
 <p align="center">
-一身报国有万死，双鬓向人无再青。
+春雨断桥人不度，小舟撑出柳阴来。
 </p>
 <p align="center">
-<<夜泊水村>> • 陆游
+<<春游湖>> • 徐俯
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.HFyoXL6Nakz2wHrrJDPs" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.i.IrYbcRDQ2T0LZVY2s4" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1..o7B9iSxryjx24UM7DiL" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG1.Bk3ZB1uJiDQvHmRUBnTS" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.wqmYOsdqE37LWdFJRqhd" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.yqqw6ZdCmHU3MU9aY3OQ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.U1fBSbOw7SuL8EU8QaWj" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.UHE9JuZfEvrPnj5Yh7Jv" height="400" width="400" />
 </p>
 
 ## 项目介绍
