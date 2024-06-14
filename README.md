@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/14 16:20:14
+  最近一次生成时间: 2024/6/14 18:17:09
 </p>
 <p align="center">
-归志宁无五亩园，读书本意在元元。
+翠葆参差竹径成。新荷跳雨泪珠倾。
 </p>
 <p align="center">
-<<读书>> • 陆游
+<<浣沙溪·翠葆参差竹径成>> • 周邦彦
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG1.fu52DC2BjkpOyIzI4gax" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.x8uEpLYFkXYz3oqXeZ9Y" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.GLYNjKswkL1D5_ubjk5f" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.bwWQHLKcaj6Ht8dzuQCk" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG2..ALmXuz4WnOh9KsBV0kG" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.j9XL.rkk5J2aAmUlAnA_" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG2.a9iEmb5hTBYwFkd1y53d" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG2.E71siaghcpJ0xxdn3cIZ" height="400" width="400" />
 </p>
 
 ## 项目介绍
