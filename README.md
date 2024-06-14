@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/15 02:22:57
+  最近一次生成时间: 2024/6/15 04:17:27
 </p>
 <p align="center">
-别裁伪体亲风雅，转益多师是汝师。
+江南无所有，聊赠一枝春。
 </p>
 <p align="center">
-<<戏为六绝句>> • 杜甫
+<<赠范晔诗>> • 陆凯
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG3.h2yf3VXzZCi6OLtAyGzH" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.hLuRQuVRhIlNL1bqUYVx" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.YtlwzSzA4GC3PDQCRG8W" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.hyM1yalkGQ4BKfPmH8SM" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4..4z0M20Fydan0hcPcSSo" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.Uln8L5BdRuMrg__PAprF" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.uqgBBbDvG9aa4nQOa77T" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.bznQ.erZDGnrIJKMpWHs" height="400" width="400" />
 </p>
 
 ## 项目介绍
