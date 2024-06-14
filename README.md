@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/14 14:23:44
+  最近一次生成时间: 2024/6/14 16:20:14
 </p>
 <p align="center">
-深涧饮渴虹，邃河生秋雷。
+归志宁无五亩园，读书本意在元元。
 </p>
 <p align="center">
-<<姑射山诗题曾山人壁>> • 惟凤
+<<读书>> • 陆游
 </p>
 <p align="center">
-<img src="https://tse3.mm.bing.net/th/id/OIG4.o3n5VCTiCb7TcBaRQKjv" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.Ez1xWi3L0ePcEYyyTqEb" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.BMtFYMNav82kkHfHqOaJ" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.Ng87V7SivTfvyGoE5sIZ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.fu52DC2BjkpOyIzI4gax" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.x8uEpLYFkXYz3oqXeZ9Y" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.GLYNjKswkL1D5_ubjk5f" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.bwWQHLKcaj6Ht8dzuQCk" height="400" width="400" />
 </p>
 
 ## 项目介绍
