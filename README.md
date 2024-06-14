@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/14 22:16:34
+  最近一次生成时间: 2024/6/15 00:20:05
 </p>
 <p align="center">
-历冰霜、不变好风姿，温如玉。
+平生多感激，忠义非外奖。
 </p>
 <p align="center">
-<<满江红·咏竹>> • 陆容
+<<酬裴侍御对雨感时见赠>> • 李白
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.I29vTIb2DW9irtofs1bQ" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.xaBtXoHX6MjnxXWRTGIJ" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.S_r8q1rW0n.pFEabVT7f" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.NeF7FILt96r622pQBoIn" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.dlrD.mnxFm7p5SAJEcVo" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.pTmQNmjSDz5Iiips_QZc" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.lMLEtJ1__hwIJ7J1KGxw" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.dWG8GF48AjntyeIMxPJX" height="400" width="400" />
 </p>
 
 ## 项目介绍
