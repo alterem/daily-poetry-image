@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/15 04:17:27
+  最近一次生成时间: 2024/6/15 06:16:18
 </p>
 <p align="center">
-江南无所有，聊赠一枝春。
+皎皎窗中月，照我室南端。
 </p>
 <p align="center">
-<<赠范晔诗>> • 陆凯
+<<悼亡诗三首>> • 潘安
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG4..4z0M20Fydan0hcPcSSo" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.Uln8L5BdRuMrg__PAprF" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.uqgBBbDvG9aa4nQOa77T" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.bznQ.erZDGnrIJKMpWHs" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.wJee46jkH4WBvGgOSYEa" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG1.538KYKX6ZcSoElVmC1Bt" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG1.y7ns8mkyY6oDWV5Ol052" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG1.9Yadbqv6SpnGXLik0Zrs" height="400" width="400" />
 </p>
 
 ## 项目介绍
