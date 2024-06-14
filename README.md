@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/14 20:31:44
+  最近一次生成时间: 2024/6/14 22:16:34
 </p>
 <p align="center">
-庭户无人秋月明，夜霜欲落气先清。
+历冰霜、不变好风姿，温如玉。
 </p>
 <p align="center">
-<<夜坐·庭户无人秋月明>> • 张耒
+<<满江红·咏竹>> • 陆容
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.AoydBW4XNVYO8DdGXz9F" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.UnbBp_GlXrCVvkpsFUUE" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG3.4sbZKK9DRAaszmARtHcE" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.HQQdRBLdvMxhpKP4k289" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.I29vTIb2DW9irtofs1bQ" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.xaBtXoHX6MjnxXWRTGIJ" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.S_r8q1rW0n.pFEabVT7f" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.NeF7FILt96r622pQBoIn" height="400" width="400" />
 </p>
 
 ## 项目介绍
