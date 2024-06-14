@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/14 06:16:10
+  最近一次生成时间: 2024/6/14 09:12:54
 </p>
 <p align="center">
-四顾山光接水光，凭栏十里芰荷香。
+西湖春色归，春水绿於染。
 </p>
 <p align="center">
-<<鄂州南楼书事>> • 黄庭坚
+<<春日西湖寄谢法曹韵>> • 欧阳修
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG3.HF7lX3sdNjGKJ3HjgYy2" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.H4SbbZLe66it_QhVul4t" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG3.c6C_AUWM_Mrz5WXGdO5f" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG3.mp6LHQ65NwGBRuE_6d2n" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.cEMjko.Qa.YE6vsCXd9H" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.mIBkFaaa3q6njYZcG7HW" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.ZqKMlmKqziNj044.yq.a" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.rjTgA8Why8bo1ghWJLh6" height="400" width="400" />
 </p>
 
 ## 项目介绍
