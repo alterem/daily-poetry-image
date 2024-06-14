@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/14 12:19:58
+  最近一次生成时间: 2024/6/14 14:23:44
 </p>
 <p align="center">
-世间珍果更无加，玉雪肌肤罩绛纱。
+深涧饮渴虹，邃河生秋雷。
 </p>
 <p align="center">
-<<咏荔枝>> • 丘浚
+<<姑射山诗题曾山人壁>> • 惟凤
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.q4WJUnkpAzycV36RLpr4" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.TGjOGvxZM5.b5m9ldUI." height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.QWY2kkJDjDFD2Xmrcqyq" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG4.6NvKGFOyrKcpXQTlBzuw" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.o3n5VCTiCb7TcBaRQKjv" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.Ez1xWi3L0ePcEYyyTqEb" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.BMtFYMNav82kkHfHqOaJ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.Ng87V7SivTfvyGoE5sIZ" height="400" width="400" />
 </p>
 
 ## 项目介绍
