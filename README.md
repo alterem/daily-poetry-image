@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/14 18:17:09
+  最近一次生成时间: 2024/6/14 20:31:44
 </p>
 <p align="center">
-翠葆参差竹径成。新荷跳雨泪珠倾。
+庭户无人秋月明，夜霜欲落气先清。
 </p>
 <p align="center">
-<<浣沙溪·翠葆参差竹径成>> • 周邦彦
+<<夜坐·庭户无人秋月明>> • 张耒
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG2..ALmXuz4WnOh9KsBV0kG" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.j9XL.rkk5J2aAmUlAnA_" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.a9iEmb5hTBYwFkd1y53d" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.E71siaghcpJ0xxdn3cIZ" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.AoydBW4XNVYO8DdGXz9F" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.UnbBp_GlXrCVvkpsFUUE" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.4sbZKK9DRAaszmARtHcE" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG3.HQQdRBLdvMxhpKP4k289" height="400" width="400" />
 </p>
 
 ## 项目介绍
