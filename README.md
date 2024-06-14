@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/14 09:12:54
+  最近一次生成时间: 2024/6/14 10:33:18
 </p>
 <p align="center">
-西湖春色归，春水绿於染。
+孤帆远影碧空尽，唯见长江天际流。
 </p>
 <p align="center">
-<<春日西湖寄谢法曹韵>> • 欧阳修
+<<黄鹤楼送孟浩然之广陵>> • 李白
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.cEMjko.Qa.YE6vsCXd9H" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG4.mIBkFaaa3q6njYZcG7HW" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.ZqKMlmKqziNj044.yq.a" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.rjTgA8Why8bo1ghWJLh6" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.hdKiQq.QQ5Sa2wguwob0" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.rUnKFtMWlOvrZzdViLUX" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.jTo7TovPSVdp.2.BD1tl" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.InU9TA63LovqPQo_EOJ5" height="400" width="400" />
 </p>
 
 ## 项目介绍
