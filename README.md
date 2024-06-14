@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/14 10:33:18
+  最近一次生成时间: 2024/6/14 12:19:58
 </p>
 <p align="center">
-孤帆远影碧空尽，唯见长江天际流。
+世间珍果更无加，玉雪肌肤罩绛纱。
 </p>
 <p align="center">
-<<黄鹤楼送孟浩然之广陵>> • 李白
+<<咏荔枝>> • 丘浚
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG3.hdKiQq.QQ5Sa2wguwob0" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.rUnKFtMWlOvrZzdViLUX" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.jTo7TovPSVdp.2.BD1tl" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG3.InU9TA63LovqPQo_EOJ5" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.q4WJUnkpAzycV36RLpr4" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.TGjOGvxZM5.b5m9ldUI." height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.QWY2kkJDjDFD2Xmrcqyq" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.6NvKGFOyrKcpXQTlBzuw" height="400" width="400" />
 </p>
 
 ## 项目介绍
