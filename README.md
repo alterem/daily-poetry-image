@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/15 12:20:36
+  最近一次生成时间: 2024/6/15 14:21:17
 </p>
 <p align="center">
-去年离别雁初归，今夜裁缝萤已飞。
+彩线轻缠红玉臂，小符斜挂绿云鬟。佳人相见一千年。
 </p>
 <p align="center">
-<<闺怨 / 怨诗>> • 张纮
+<<浣溪沙·端午>> • 苏轼
 </p>
 <p align="center">
-<img src="https://tse2.mm.bing.net/th/id/OIG4.VJSzA7.W75rOQTaoRA1b" height="400" width="400" />
-<img src="https://tse4.mm.bing.net/th/id/OIG4.JpJET0DEcLtdlaPZgm6." height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.8m1WrsYOoRLQuQPy3w3V" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG4.ShCWZRzhcaeA5yDC4esn" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.RBZd_N9DEJ2TpIphX00w" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG3.expj5eVRnUzrbJzh1CRS" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG3.0x0WcoHsbnUq7mIDwk7z" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG3.K3JgVcRMkcjc2bBGHy6u" height="400" width="400" />
 </p>
 
 ## 项目介绍
