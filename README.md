@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/15 10:31:30
+  最近一次生成时间: 2024/6/15 12:20:36
 </p>
 <p align="center">
-入春才七日，离家已二年。
+去年离别雁初归，今夜裁缝萤已飞。
 </p>
 <p align="center">
-<<人日思归>> • 薛道衡
+<<闺怨 / 怨诗>> • 张纮
 </p>
 <p align="center">
-<img src="https://tse4.mm.bing.net/th/id/OIG2.dpJJrl9Je7ymiJRSrJqv" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG2.fyoITsPRO2FE9HfUFzRu" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG2.izduY5WZ3Zk.gFJs3vbp" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG2.JTeRIg48x3ksO94CM6Gr" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.VJSzA7.W75rOQTaoRA1b" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.JpJET0DEcLtdlaPZgm6." height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.8m1WrsYOoRLQuQPy3w3V" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.ShCWZRzhcaeA5yDC4esn" height="400" width="400" />
 </p>
 
 ## 项目介绍
