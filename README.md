@@ -8,19 +8,19 @@
 ### 👉🏽 [Live](https://daily-poetry-image.alterem.top/) https://daily-poetry-image.alterem.top
 
 <p align="right">
-  最近一次生成时间: 2024/6/15 06:16:18
+  最近一次生成时间: 2024/6/15 09:12:43
 </p>
 <p align="center">
-皎皎窗中月，照我室南端。
+江上春山远，山下暮云长。
 </p>
 <p align="center">
-<<悼亡诗三首>> • 潘安
+<<水调歌头·江上春山远>> • 葛长庚
 </p>
 <p align="center">
-<img src="https://tse1.mm.bing.net/th/id/OIG1.wJee46jkH4WBvGgOSYEa" height="400" width="400" />
-<img src="https://tse1.mm.bing.net/th/id/OIG1.538KYKX6ZcSoElVmC1Bt" height="400" width="400" />
-<img src="https://tse3.mm.bing.net/th/id/OIG1.y7ns8mkyY6oDWV5Ol052" height="400" width="400" />
-<img src="https://tse2.mm.bing.net/th/id/OIG1.9Yadbqv6SpnGXLik0Zrs" height="400" width="400" />
+<img src="https://tse4.mm.bing.net/th/id/OIG4.hoWT9LgzPjGUYDI98pJ9" height="400" width="400" />
+<img src="https://tse1.mm.bing.net/th/id/OIG4.q_oEt73KSYwPouZDWilQ" height="400" width="400" />
+<img src="https://tse2.mm.bing.net/th/id/OIG4.shwyrG8TYvhUL7.HcOGj" height="400" width="400" />
+<img src="https://tse3.mm.bing.net/th/id/OIG4.N1hyIx2GnCTzEd.RCZu1" height="400" width="400" />
 </p>
 
 ## 项目介绍
